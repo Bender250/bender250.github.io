@@ -1,10 +1,24 @@
 ---
 layout: post
-title: You're up and running!
+title: Zkouska blogu
 ---
 
-Next you can update your site name, avatar and other options using the _config.yml file in the root of your repository (shown below).
+Nastaveni blogu splneno, ted se muzu dat do ladeni obrazku :).
 
-![_config.yml]({{ site.baseurl }}/images/config.png)
+Tady by mela nasledovat nejaka galerie:
 
-The easiest way to make your first post is to edit this one. Go into /_posts/ and update the Hello World markdown file. For more instructions head over to the [Jekyll Now repository](https://github.com/barryclark/jekyll-now) on GitHub.
+{% image_set images/testing %}
+
+A zde po galerii text.
+
+Jeden cisty obrazek:
+
+![Popis]({{ site.baseurl }}/images/testing/IMG_4392.jpg)
+
+Pokrocileji vice obrazku:
+
+{% responsive_image path: testing/IMG_4391.jpg alt: "alt..." title: "tit..." %}
+{% responsive_image path: testing/IMG_4392.jpg %}
+{% responsive_image path: testing/IMG_4393.jpg %}
+
+Link [na navod Jekyllu](https://github.com/barryclark/jekyll-now) na GitHubu.
