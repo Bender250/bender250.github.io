@@ -13,4 +13,6 @@ Nastaveni blogu splneno, ted se muzu dat do ladeni obrazku :).
 
 Jeden cisty obrazek:
 
-![Popis]({{ site.baseurl }}/images/testing/IMG_4392.jpg)
+<img src="https://bender250.github.io/images/testing/IMG_4392.jpg" alt="Popis">
+
+
