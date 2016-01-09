@@ -5,14 +5,16 @@ title: Zkouska blogu
 
 Nastaveni blogu splneno, ted se muzu dat do ladeni obrazku :).
 
-[//]: # Tady by mela nasledovat nejaka galerie:
-
-[//]: # {% image_set images/testing %}
-
-[//]: # A zde po galerii text.
-
 Jeden cisty obrazek:
 
-<img src="https://bender250.github.io/images/testing/IMG_4392.jpg" alt="Popis">
+![Popis]({{ site.baseurl }}/images/testing/IMG_4392.jpg)
 
+Vice obrazku za sebou:
 
+![Popis]({{ site.baseurl }}/images/testing/IMG_4391.jpg)
+
+![Popis]({{ site.baseurl }}/images/testing/IMG_4392.jpg)
+
+![Popis]({{ site.baseurl }}/images/testing/IMG_4393.jpg)
+
+Link [na navod Jekyllu](https://github.com/barryclark/jekyll-now) na GitHubu.
