@@ -5,6 +5,12 @@ title: Zkouska blogu
 
 Nastaveni blogu splneno, ted se muzu dat do ladeni obrazku :).
 
-Tady by mela nasledovat nejaka galerie:
+[//]: # Tady by mela nasledovat nejaka galerie:
 
-{% image_set images/testing %}
+[//]: # {% image_set images/testing %}
+
+[//]: # A zde po galerii text.
+
+Jeden cisty obrazek:
+
+![Popis]({{ site.baseurl }}/images/testing/IMG_4392.jpg)
