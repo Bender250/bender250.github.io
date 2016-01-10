@@ -1,15 +1,18 @@
 ---
 layout: page
-title: About
-permalink: /about/
+title: O tomto blogu a mém pobytu
+permalink: /O blogu/
 ---
 
-Some information about you!
+Na tomto blogu budu zveřejňovat zážitky z Erasmu v Trondheimu v Norsku.
 
-### More Information
+Logo v záhlaví stránky je vlajka Trondheimu (dávat tam Norskou vlajku mi přišlo moc profláklý).
 
-A place to include any other types of information that you'd like to include about yourself.
+### Kontakt
 
-### Contact me
+Kdybyste chtěli zajet do Norska, tak mi napište a není problém zde přespat.
 
-[email@domain.com](mailto:email@domain.com)
+Pokud byste mi chtěli napsat tradiční cestou, tak moje aktuální adresa je:
+
+Herman Krags veg 39 - 22
+7050 Trondheim
