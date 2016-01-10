@@ -14,5 +14,5 @@ Kdybyste chtěli zajet do Norska, tak mi napište a není problém zde přespat.
 
 Pokud byste mi chtěli napsat tradiční cestou, tak moje aktuální adresa je:
 
-Herman Krags veg 39 - 22
+Herman Krags veg 39 - 22<br />
 7050 Trondheim
