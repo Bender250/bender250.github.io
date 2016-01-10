@@ -33,7 +33,7 @@ Byť by možná byl autobus levnější, časová úspora velela letět letadlem
 
 Hurá, je středa a já v 8:00 s taťkou vyrážím po D1 do Prahy. Naštěstí žádné komplikace i přes občasné náledí, takže v Praze jsme byli v 10:20. Dokonce jsem se zvládl odbavit pouze se ztrátou nůžek, které jsem si jako blbec na poslední chvíli hodil do malého batohu (*Co kdyby se hodily...?* -- třeba lidem na letišti). Kvůli sněhové kalamitě (ty 3 cm sněhu) se odlet o hodinu opozdil.
 
-![Ruzyne]({{ site.baseurl }}/images/init/_DSC4335.JPG)
+![Ruzyne](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/init/_DSC4335.JPG)
 *Spousta sněhu v Praze na letišti a zároveň foto letadla společnosti Norweigen, se kterou jsem letěl.*
 
 Během letu jsem si užíval sluníčka a nějakou dobu jsem se snažil stát expertem na mraky (všechny ty typy mraků, co se za cestu vystřídaly, byly úžasný, ale nic jsem nefotil, jelikož nám letadlo postříkali nějakým gelem, kterej výhled dost rozmazal).
@@ -53,17 +53,17 @@ Po rychlém setkání jsem si šel nakoupit a to tak, abych zatím nemusel vaři
 
 Celkově jsem s bydlením spokojen. Spolubydlící jsou fajn (ještě tedy stále čekáme na 4.), byt je prostorný a příjemně blízko ke škole, potravinám i parku. Díky tomu, že Quisi už je tu 4. semestr, tak je v kuchyni skoro vše, co bych mohl potřebovat (například jsem si z domu zapomněl vzít termosku, ale zde jsou 4 k dispozici :)).
 
-![Vyhled_z_okna]({{ site.baseurl }}/images/init/_DSC4385.JPG)
+![Vyhled_z_okna](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/init/_DSC4385.JPG)
 *V 13:00 slunce svítí jen pár metrů od mého okna.*
 
-![Vyhled_z_okna]({{ site.baseurl }}/images/init/_DSC4386.JPG)
+![Vyhled_z_okna](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/init/_DSC4386.JPG)
 *V 14:00 už se dotýká mého okna, pak zapadá -- budu ještě muset týden počkat.*
 
 Bydlení má i několik slabin. Například jsme si museli koupit vlastní peřinu a polštář (jako kdyby jim to zde polovina studentů po svém pobytu nezanechala). Dále je zde divnej termostat - každé 3 hodiny musíte zmáčknout tlačítko pro topení, abyste dali najevo, že tu jste. Po 3 hodinách se totiž termostat přepne do stanu 15 °C. Toto téma je vždy zaručeným tématem na navázání hovoru s jinými studenty -- máme to tak všichni a všichni na to nadáváme. Poslední nic moc věc je koupelna. Bydlím ve starší části Moholtu, takže zde nemáme podlahové topení, kterým se chlubí studenti z novější části, ale to bych v pohodě přečkal. Ale to, že teplá voda teče až 2 minuty po zapnutí sprchy a v průběhu se mění její teplota bych očekával spíš někde v zapadákově. Navíc je na kohoutku kurvítko, které musíte zmáčknout, aby vůbec začala téci teplá -- jak geniální. Poslední problém je hluk, který v noci dělají studenti okolních bytů. Erasmus je pro spoustu jedna velká párty, takže dlouho do noci hraje hlasitá hudba.
 
 S Quisim jsme se setkali až v pátek. V ten den jsme se s Thomasem pustili do společného kuchtění lasagní (tedy jejich obdoby s tuňákem), na což jsme si půjčili věci z kuchyně (déle se nám na vyjasnění pravidel čekat nechtělo). Quisi se pak přidal k večeření a samozřejmě potvrdil, že můžeme používat cokoliv, co budeme potřebovat :).
 
-![Cesta_do_skoly]({{ site.baseurl }}/images/init/moholt_to_ntnu.png)
+![Cesta_do_skoly](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/init/moholt_to_ntnu.png)
 [*Takto vypadá cesta do školy*](https://goo.gl/maps/SrmYNyq7v3x)
 
 Tímto bych utnul úvodní, již tak dlouhý, příspěvek. Ale buďto dnes, nebo zítra budu pokračovat zajímavějším blogem a orientačním týdnu.
