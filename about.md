@@ -1,7 +1,7 @@
 ---
 layout: page
 title: O tomto blogu a mém pobytu
-permalink: /O blogu/
+permalink: /about/
 ---
 
 Na tomto blogu budu zveřejňovat zážitky z Erasmu v Trondheimu v Norsku.
