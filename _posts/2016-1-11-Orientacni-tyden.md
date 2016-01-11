@@ -65,7 +65,7 @@ Já jsem si zvolil výlet v průběhu dne, za což jsem rád. Skupinka, která �
 Po výšlapu na vrchol následoval přesun do chaty Studenterhytta. V chatě nám vysvětlili, jak funguje systém studentských chat, zmínili se o možnosti stát se dobrovolníkem (ubytování a jídlo za práci) a my jsme se mezitím ohřáli. Po chvíli diskutování se správcem chaty jsme dostali palačinky a čaj, což po té zimě bylo naprosto úžasné.
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/orient/_DSC4360.JPG)
-*Pohled na nefunkční vlek při cestě na vrchol. Fotka je podexponovaná (což se mi líbí), což zvýrazňuje barvy okolí.*
+*Pohled na nefunkční vlek při cestě na vrchol. Fotka je podexponovaná (což se mi líbí, jelikož to zvýrazňuje barvy okolí).*
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/orient/_DSC4375.JPG)
 *Nekonkrétní, ale hezký pohled z vrcholu. Směr od Trondheimu. A já se učil ovládat foťák v rukavicích, protože jsem nechtěl přijít o ruce (a fotka má uměle vyváženou bílou, měla být víc do žluta).*
