@@ -54,12 +54,12 @@ V pátek a sobotu jsme si mohli sami zvolit, jaký program chceme. V pátek jsme
 
 Výlet za východem, nebo západem slunce se propagoval jako chůze za tmy s loučemi, ale kvůli riziku požárů (při -16 °C je všude sucho a před nějakou dobou zde měli rozsáhlé požáry) účastnící dostali pouze čelovky.
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/orient/_DSC4340.JPG)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/orient/_DSC4346.JPG)
 *Slunce!!!*
 
 Já jsem si zvolil výlet v průběhu dne, za což jsem rád. Skupinka, která šla za východem slunce totiž měla -20 °C, navíc hůře viděli led, takže neustále padali, takže neprošli celou trasu a cestu si zkrátili rovnou k chatě. Nás už doprovázelo slunce, takže se dobře fotilo a skoro nikdo nepadal. Také teplotu jsme měli o trochu lepší, pouze -16 °C u chaty, takže tak -18 °C na vrcholu Bymarky (dokud nefoukalo, tak to bylo v pohodě).
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/orient/_DSC4340.JPG)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/orient/_DSC4355.JPG)
 *Zase slunce!!! A lidi. Všichni jdou po kraji, protože střed neuvěřitelně klouzal, což už jsme díky sluníčku viděli.*
 
 Po výšlapu na vrchol následoval přesun do chaty Studenterhytta. V chatě nám vysvětlili, jak funguje systém studentských chat, zmínili se o možnosti stát se dobrovolníkem (ubytování a jídlo za práci) a my jsme se mezitím ohřáli. Po chvíli diskutování se správcem chaty jsme dostali palačinky a čaj, což po té zimě bylo naprosto úžasné.
