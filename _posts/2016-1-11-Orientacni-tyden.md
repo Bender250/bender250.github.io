@@ -106,7 +106,7 @@ Z kvízu se organizátorům povedlo rychle (ale celkem nešťastně, protože t�
 
 Z orientačního týdně jsem poznal většinu lidí z jiných oborů. Za celý týden jsem potkal jen partu Srbských informatiků a jednoho německého informatika, který skoro nemluví anglicky a ještě studuje hrozný blbosti. (To jako fakt někdo jede na Erasmus, když všude musí chodit se svým kamarádem, který mu toho dost překládá? Anglicky ani neumí popsat předměty, co zde chce studovat a když z něj páčíte, jakou má motivaci si dát tyhle předměty, tak řekne, že jen podle názvu, protože obsahu kurzu moc nerozumí...).
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/orient/old_building.jpg)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/orient/serbian_guys.jpg)
 *Parta Srbských informatiků na prvním dni orientačního týdne (fotka od někoho z NTNU I).*
 
 Shánění informatických kontaktů tedy nemělo smysl, protože stejně nikdo nechce studovat to co já. A odkud jsou ostatní studenti, kteří se účastnili orientačního týdne?
