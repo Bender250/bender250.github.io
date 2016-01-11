@@ -115,4 +115,4 @@ Skoro polovina studentů je z Německa, žádný jiný stát nemá zdaleka tak v
 
 Kromě skupinky Srbů se zde ještě skupinkují Francouzi a Poláci a párují (myšleno počtem) Španělé (často kvůli angličtině). Když přidám jednotlivce z Beneluxu a holku z Austrálie a Běloruska, tak asi končí výčet všech zemí, odkud zde někoho znám.
 
-Příští příspěvek asi po víkendu, na pátek sobotu a neděli už jsem si domluvil aktivitu.
+Příští příspěvek asi po víkendu, na pátek, sobotu a neděli už jsem si domluvil aktivitu.
