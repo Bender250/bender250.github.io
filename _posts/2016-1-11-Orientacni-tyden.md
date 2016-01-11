@@ -49,12 +49,12 @@ Den byl dlouhý, já přišel domů unavený a po večeři jsem ještě dodělá
 
 V pátek a sobotu jsme si mohli sami zvolit, jaký program chceme. V pátek jsme měli jít na výlet do Bymarky, možnost volby byla v denní době. Ráno za východem slunce, v průběhu dne, nebo večer za západem (ráno a večer jsou značně relativní pojmy, jelikož východ slunce byl krátce před 10 hodinou, západ již v 15:00, více o délce dne si přečtěte [třeba zde](http://www.gaisma.com/en/location/trondheim.html)).
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/orient/_DSC4340.JPG)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/orient/_DSC4346.JPG)
 *Výhled na Trondheim z Bymarky.*
 
 Výlet za východem, nebo západem slunce se propagoval jako chůze za tmy s loučemi, ale kvůli riziku požárů (při -16 °C je všude sucho a před nějakou dobou zde měli rozsáhlé požáry) účastnící dostali pouze čelovky.
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/orient/_DSC4346.JPG)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/orient/_DSC4340.JPG)
 *Slunce!!!*
 
 Já jsem si zvolil výlet v průběhu dne, za což jsem rád. Skupinka, která šla za východem slunce totiž měla -20 °C, navíc hůře viděli led, takže neustále padali, takže neprošli celou trasu a cestu si zkrátili rovnou k chatě. Nás už doprovázelo slunce, takže se dobře fotilo a skoro nikdo nepadal. Také teplotu jsme měli o trochu lepší, pouze -16 °C u chaty, takže tak -18 °C na vrcholu Bymarky (dokud nefoukalo, tak to bylo v pohodě).
