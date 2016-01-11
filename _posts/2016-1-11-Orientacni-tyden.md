@@ -72,7 +72,7 @@ Po výšlapu na vrchol následoval přesun do chaty Studenterhytta. V chatě ná
 
 Pak už jen návrat z prosluněných kopečků Bymarky do Trondheimu, kde slunce už zapadlo.
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/orient/_DSC4381.JPG)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/orient/_DSC4381.JPG)<br />
 *Los nad krbem v chatě Studenterhytta.*
 
 Jelikož aktivita skončila celkem brzy, tak mi zbyl konečně nějaký čas na: nákup peřiny a polštáře, nákup větší zásoby jídla a pak již zmíněná společná příprava večeře se spolubydlícím Thomasem. A jelikož byl pátek, tak jsme také pak šli na studentskou párty. Nejdůležitější debata byla s Němci a Lichtenšteincem o tom, kdo má lepší pivo. No, mám za úkol někdy ochutnat Liechtensteiner Brauhaus :).
