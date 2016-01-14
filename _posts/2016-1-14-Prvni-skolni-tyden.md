@@ -16,7 +16,7 @@ Výuka. Zatím se moc nebudu vyjadřovat ke konkrétním předmětům, to si nec
 Večer jsem měl mít cvičení k předmětu, který má přednášku až v pátek. Předmět nemám zapsaný, ale prohlídl jsem alespoň informační systém se *vším ke studiu, až na formality jako registrace*. Žádné oznámení tam nebylo, tak jsem na cvičení vyrazil. Místnost jsem našel, ale zamčenou, takže se cvičení nekonalo. Když už jsem tedy vyrazil z domu, tak jsem se rozhodl alespoň projít nočním (18:00) Trondheimem. Rozhodl jsem se poznat centrum s nadějí, že by tam ještě mohly být trhy. Trhy už tam nebyly, takže jsem ještě nějakou dobu náhodně chodil po centru. Pak jsem se rozhodl najít policejní stanici, kam mám v pátek dorazit. Po realizaci i tohoto nápadu už jsem jen mířil směrem, kterým jsem odhadoval, že je Moholt. To úplně nevyšlo, takže celkově procházka trvala kolem 2 hodin. Byl jsem z ní nadšen, jen jsem nemusel pochodovat v oblečení do školy.
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/prvni_tyden/pondelni_cesta.png)
-*[Pěkně ztrávené 2 hodiny](https://mapy.cz/s/pIwz). Konečně jsem se zorientoval minimálně v přilehlé části Trondheimu.*
+*[Pěkně strávené 2 hodiny](https://mapy.cz/s/pIwz). Konečně jsem se zorientoval minimálně v přilehlé části Trondheimu.*
 
 Škoda, že bylo zataženo, v pondělí byla slušná šance na polární záři, byť na tu jsem se pohyboval moc po městě se světelným smogem.
 
