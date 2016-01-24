@@ -50,7 +50,7 @@ Poslední trojice stanovišť byla variací na hru Aktivity. Tahali jsme si film
 
 Dopadli jsme průměrně, ačkoliv jsme měli pocit, že se nám většina věcí dařila dobře. Bohužel byla stanoviště za různý počet bodů a tam, kde se dalo získat nejvíc, jsme měli spíš méně. Ale celkově byla hra super a hlavně přelézání trámů si zapamatuju na dlouho :).
 
-Příjemně unaven jsem jako jeden z mála zvládl koukat na film [Případ číslo 39](http://www.csfd.cz/film/226038-pripad-cislo-39/prehled/), který mi jako film z kategorie *omg* filmů líbil (a byl jsem z těch, co na to koukali asi jediný).
+Příjemně unaven jsem jako jeden z mála zvládl koukat na film [Případ číslo 39](http://www.csfd.cz/film/226038-pripad-cislo-39/prehled/), který mi jako film z kategorie *omg filmů* líbil (a byl jsem z těch, co na to koukali asi jediný).
 
 Před spaním jsem se připojil k hráčům deskových her a naučil jsem se pohádat se u jednoduché hry [Fazole](http://www.zatrolene-hry.cz/spolecenska-hra/fazole-347/), za kterou musím majitele pochválit, na takovou akci byla ideální. Dále se ještě hrálo 6 bere a někdo hrál poker, většina však ocenila hlasitou hudbu a *levné pivo* (jen 50 NOK :D) a šli pařit.
 
