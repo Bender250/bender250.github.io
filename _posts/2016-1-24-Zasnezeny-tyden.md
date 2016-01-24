@@ -27,6 +27,9 @@ Na pondělní koulovačku jsem přišel trochu později a hledal jsem někoho, k
 
 Abychom si těch 40 centimetrů sněhu pořádně užili, ve středu se pokračovalo větší a organizovanější koulovačkou. Pravidla byla instruována krásnou grafikou a dají se shrnout jako obdoba *Capture the flag* s tím, že úkolem je dovést živého vůdce týmu k protihráčově vlajce. Po zásahu je nutno se jít oživit na základnu.
 
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/snowy_week/battle_rules1.jpg)
+*Další obrázky pravidel: [týmy](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/snowy_week/battle_rules2.jpg), [zásah](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/snowy_week/battle_rules3.jpg), [nezásah](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/snowy_week/battle_rules4.jpg), [čím jde házet](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/snowy_week/battle_rules1.jpg) od [Paulo Benazet Montobbio](https://www.facebook.com/paulo.benazetmontobbio).*
+
 První pokus se moc nezdařil, hodně vzdálené základny vybízely k velké opatrnosti, což ubralo na akčnosti. Takto byla po hodině hra restartována, tentokrát s bližšími základnami. To hru hodně zrychlilo a boje zatraktivnilo.
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/snowy_week/attack.JPG)
