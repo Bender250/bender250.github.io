@@ -57,7 +57,7 @@ Na úkolu ani není tak složité jej naprogramovat (když pominu moje učení s
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/snowy_week/swarm.png)
 *Tak takto to zatím vypadá. Barevný jako v ukázce to ani neplánuju, ale třeba se to v budoucnu bude lépe hýbat. Černé tečky jsou překážky, kterým se ptáci vyhýbají.*
 
-Takže pokud mi chcete pomoci, nebo si jen chcete zahrát *hru na boha*, tak si můžete stáhnout můj program  (zatím jen pro [Linux](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/multi/swarm), kdyby mi to někdo [buildnul](https://github.com/Bender250/ntnu-ai) v Qt 5.5 pro Win, tak bych ho nesmírně chválil) a snažit se v něm pomocí ovládání nastavit ty správné hodnoty, aby to vypadalo co nejvěrohodněji. Pokud se vám to podaří a následně se dostatečně pokocháte svým stvořením, tak po ukončení programu se vypíše nastavení do souboru `settings.txt`. Pochlubte se svým nastavením a toho nejlepšího ocením pivem/kofolou... (jen ne Norským).
+Takže pokud mi chcete pomoci, nebo si jen chcete zahrát *hru na boha*, tak si můžete stáhnout můj program  (zatím jen pro [Linux](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/multi/swarm), kdyby mi to někdo [buildnul](https://github.com/Bender250/ntnu-ai) v Qt 5.5 pro Win, tak bych ho nesmírně chválil) a snažit se v něm pomocí ovládání nastavit ty správné hodnoty, aby to vypadalo co nejvěrohodněji. Pokud se vám to podaří a následně se dostatečně pokocháte svým stvořením, tak po ukončení programu se vypíše nastavení do souboru `initial.txt`. Pochlubte se svým nastavením a toho nejlepšího ocením pivem/kofolou... (jen ne Norským).
 
 # Výlety a lidé
 
@@ -75,7 +75,7 @@ S Franceskem jsme v neděli vyrazili na výlet poznávat nejbližší přírodu 
 V přípravě buchet už jsem se poučil a nyní zvládám spolupráci se surovinami i troubou mnohem lépe. Můžete posoudit sami:
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/snowy_week/cake1.JPG)
-*Jen jsem si stále nezvykl na velké plechy. A tyto buchty už nikdy nebudu jít doma tak rychle, když jsem zjistil, jak dlouho se to dělají.*
+*Jen jsem si stále nezvykl na velké plechy. A tyto buchty už nikdy nebudu jíst doma tak rychle, když jsem zjistil, jak dlouho se to dělají.*
 
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/snowy_week/cake2.JPG)
