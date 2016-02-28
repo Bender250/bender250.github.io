@@ -31,7 +31,7 @@ Návleky moc nefungují, na cestě z kopce mám pocit, že musím spadnout každ
 
 Za autobus platím 40 NOK jako student, zatímco Tomáš 50 NOK (taky řekl, že je student), každý pro sebe máme [jednu dvojsedačku](http://www.monda.no/ifln/the-norwegian-personal-bubble/) a po 30 minutách jsme na místě. Je mírně pod mrakem a já se rozhodnu využít otevřeného COOPu a koupit ještě větší zásobu vody.
 
-Úvodní 6 kilometrů dlouhá část po silnici je až na klouzavá místa nuda. Celkem se při ní zapotíme a tedy sundáváme jednu vrstvu (v mém případě jedinou mikinu, bez které je mi zase během pauzy zima, ale za chůze je to ideální). Jídlo zvládáme za pochodu, chceme se z té silnice dostat co nejdřív. Proto míjíme i ideální odbočku, což znamená trochu delší úsek po silnici, ale téměř nic navíc v celkové délce.
+Úvodní 6 kilometrů dlouhá část po silnici je až na klouzavá místa nuda. Celkem se při ní zapotíme, a tedy sundáváme jednu vrstvu (v mém případě jedinou mikinu, bez které je mi zase během pauzy zima, ale za chůze je to ideální). Jídlo zvládáme za pochodu, chceme se z té silnice dostat co nejdřív. Proto míjíme i ideální odbočku, což znamená trochu delší úsek po silnici, ale téměř nic navíc v celkové délce.
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/nico/trasa.jpg)
 *[Zhruba toto je mapa trasy, kterou jsme absolvovali](https://mapy.cz/s/tmIC).*
@@ -41,7 +41,7 @@ Konečně změna silnice za cestu vyjetou skútrem. Zde má Tomáš poprvé při
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/nico/stopa.JPG)
 *Ve stopě od skútru se šlapalo pěkně.*
 
-Po tom, co se dostáváme na plošinu se nám zlepšuje počasí, a také dostáváme krásné výhledy do okolí. Zatímco Tomáš fotí zamrzlé *vodopády* (jen pár metrů převisu, ne nic stometrového), s Martou mu utíkáme a schováváme se za kopu sněhu. Marta při tom krásně zahučí do hlubokého sněhu − první náznak, že sněhu bude dost (bohužel toto není dostatečně zdokumentováno).
+Po tom, co se dostáváme na plošinu se nám trochu zlepšuje počasí, a také dostáváme krásné výhledy do okolí. Zatímco Tomáš fotí zamrzlé *vodopády* (jen pár metrů převisu, ne nic stometrového), s Martou mu utíkáme a schováváme se za kopu sněhu. Marta při tom krásně zahučí do hlubokého sněhu − první náznak, že sněhu bude dost (bohužel toto není dostatečně zdokumentováno).
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/nico/vodopady.JPG)
 *Tomáš fotí vodopády.*
@@ -87,7 +87,7 @@ Nico je na kopečku, který obcházíme a dostáváme se k ní oklikou. Fotíme 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/nico/sousedi.JPG)
 *A sousedi mají taky krásný místo.*
 
-V chatě je suché dřevo, takže Marta jde rozdělávat oheň a my připravit víc dřeva. Krásné břízové klády jsou hned u chaty (proč toto konstatuju se dozvíte v příštích příspěvcích o chatách) a až na trochu tupější jednu pilu je vše pohádkově funkční. Dřeva je akorát zrovna po západu slunce, mezitím máme uvnitř i trochu teplo. Fakt jde všechno tak krásně, nevymýšlím si, jak někteří v deníku chaty − *po dvouhodinovém pochodu, na který nám svítila polární záře a zpívali sobí zpřažení jsme došli do vyhřáté chaty a udělali si BBQ...*.
+V chatě je suché dřevo, takže Marta jde rozdělávat oheň a my připravit víc dřeva. Krásné břízové klády jsou hned u chaty (proč toto konstatuju se dozvíte v příštích příspěvcích o chatách) a až na trochu tupější jednu pilu je vše pohádkově funkční. Dřeva je akorát zrovna po západu slunce, mezitím máme uvnitř i trochu teplo. Fakt jde všechno tak krásně, nevymýšlím si, jak někteří v deníku chaty − *po dvouhodinovém pochodu, na který nám svítila polární záře a zpívali sobí spřežení jsme došli do vyhřáté chaty a udělali si BBQ...*.
 
 Pohodlně jsme připravili rizoto a pochutnali jsme si na *bublanině* od Marty a mé bábovce. Večer jsem hlavně Martu naučil karetní hru Mao, které jsme využili na plnění úkolů jako přikládání do kamen. Asi ve 2 jsme šli spát.
 
