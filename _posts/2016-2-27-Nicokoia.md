@@ -93,7 +93,7 @@ Pohodlně jsme připravili rizoto a pochutnali jsme si na *bublanině* od Marty 
 
 # Slunná a líná neděle
 
-Ráno, které nastalo hrozně pozdě, jsme se věnovali Norštině. Přitom venku bylo krásně, ale pozdní vstávání a lenost některých z nás nám plány na výlet po okolí (dostali jsme tip na výhled z asi kilometr vzdáleného kopečku) překazil. Já dostávám za úkol sepsat hlášení do deníku, protože je to můj první výlet (s pravidlem souhlasím a mělo by být dodržováno, jeho nedodržování vede jen k zápisům, se kterými nesouhlasím). Bus nám jede v 18, nebo v 20, což nám dává ideální zálohu pro případ, že půjdeme pomalu. I tak chceme stihnout ten v šest, a tak vyrážíme něco před jednou (cesta na chatu nám trvala asi 5 a půl hodiny).
+Ráno, které nastalo hrozně pozdě, jsme se věnovali Norštině. Přitom venku bylo krásně, ale pozdní vstávání a lenost některých z nás nám plány na výlet po okolí (dostali jsme tip na výhled z asi kilometr vzdáleného kopečku) překazily. Já dostávám za úkol sepsat hlášení do deníku, protože je to můj první výlet (s pravidlem souhlasím a mělo by být dodržováno, jeho nedodržování vede jen k zápisům, se kterými nesouhlasím). Bus nám jede v 18, nebo v 20, což nám dává ideální zálohu pro případ, že půjdeme pomalu. I tak chceme stihnout ten v šest, a tak vyrážíme něco před jednou (cesta na chatu nám trvala asi 5 a půl hodiny).
 
 Při odchodu z chaty sněží a tak úsek na sněžnicích zvládáme více než 2x rychleji. Po sundání sněžnic okamžitě přestává sněžit a svítí krásně slunce. To z krajiny dělá opakovaný zážitek a potvrzuje to dojmy ze soboty. Také to potvrzuje Tomášovy opakované připomínky, že jsme si měli vzít běžky.
 
