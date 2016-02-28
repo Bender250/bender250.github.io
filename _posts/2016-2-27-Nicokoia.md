@@ -7,18 +7,18 @@ Po dlouhé době, kdy už opravdu nemám žádnou výmluvu (měl jsem jich něko
 
 # Příprava
 
-Chaty NTNUI (organizace, která se stará o chaty) hodnotí chaty složitostí na [škále 1-5](http://org.ntnu.no/koiene/koiematrisa.php?&l=1#B) (5 = nejtěžší). Můj původní plán bylo ze začátku nepřecenit své schopnosti a vydat se na nějakou chatu složitosti 2, možná 3 (složitost 1 má jen jedna chata, která je velká, takže jsem nepotřeboval nutně jít od nejsnazší). Plán tedy bylo sehnat skupinku různorodých, ale pro hiking nadšených kamarádů studentů a vybrat nějakou lehčí chatu. Jaktože jsem tedy skončil na chatě složitosti 4 v čistě v české skupince (když jsem se tehdy ještě navíc tak Čechům vyhýbal?).
+Chaty NTNUI (organizace, která se stará o chaty) hodnotí chaty složitostí na [škále 1-5](http://org.ntnu.no/koiene/koiematrisa.php?&l=1#B) (5 = nejtěžší). Můj původní plán bylo ze začátku nepřecenit své schopnosti a vydat se na nějakou chatu složitosti 2, možná 3 (složitost 1 má jen jedna chata, která je velká, takže jsem nepotřeboval nutně jít od nejsnazší). Plán tedy bylo sehnat skupinku různorodých, ale pro hiking nadšených kamarádů studentů, a vybrat nějakou lehčí chatu. Jaktože jsem tedy skončil na chatě složitosti 4 v čistě v české skupince (když jsem se tehdy ještě navíc tak Čechům vyhýbal?).
 
 Moje snahy o sehnání skupinky lidí byly celkem rychle neúspěšné − poslal jsem pár zpráv a dostal jsem jen negativní odpovědi. Takže vůdcem skupinky nebudu, musím se k někomu přidat. Také čas se krátil, takže moc volných chat nezbývalo. Marta s Tomášem se tedy rozhodli, že chtějí jít na chatu, kam se dá jít *jen se sněžnicemi* (k tomuto se ještě *mnohokrát* vrátím), a tak se je rozhodli nakoupit. Ale zároveň nechtěli jít jen 2 (Norské desatero bezpečnosti navrhuje větší skupinky), tak jsem byl přibrán. Přesněji Tomáš by raději nějakého cizince, aby nemluvili celou dobu česky, ale Marta už odmítala věřit schopnostem někoho, koho nezná (vysvětleno [zde](http://blog.amaterskelety.cz/subdom/blog/node/163)), což vlastně vůbec neobhajuje to, že já jsem byl bezpečná volba.
 
 Takže jsem si v pátek půjčil od Marty "šalinkartu" a vyrazil nakupovat do outdoorového obchodu, kde měli sněžnice za super cenu − 250 NOK. Nebyla na nich uvedena nosnost, což jsem bral jako experiment − s >10 kg batohem to nemám daleko ke 100 kg, navíc jsem na sněžnicích nikdy nestál. Kromě sněžnic jsem ještě koupil plynovou kartuši, i ta byla skoro levnější, než u nás (sněžnice byly o hodně levnější než u nás). Cenu následně vykompenzoval nákup obvazů, desinfekce a náplastí, abych si vytvořil vlastní mini lékárničku (to zase měli všechno příšerně drahý a navíc nemají neelastický obvazy, hrůza). Přípravu jsem zakončil ještě nákupem hrotů na boty, které měli pouze ve velikosti 40-45, takže na mou pohorku 47 krásně sedí :D.
 
-Původně jsem plánoval brát běžky, takže jsem je měl půjčené a vyzkoušené již zmíněným výletem k Estedenhyttě. Ale jelikož mne Marta informovala, že to *bude na ty sněžnice a ne na běžky*, tak jsem se rozhodl běžky v pátek ještě na rychlo vrátit, aby je mohl použít někdo jiný (běžky jsou zdarma, takže jsem nechtěl, aby mi ležely doma). Alespoň jsem vyměnil hůlky za menší, vhodnější pro sněžnice.
+Původně jsem plánoval brát běžky, takže jsem je měl půjčené a vyzkoušené již zmíněným výletem k Estenstadhyttě. Ale jelikož mne Marta informovala, že to *bude na ty sněžnice a ne na běžky*, tak jsem se rozhodl běžky v pátek ještě na rychlo vrátit, aby je mohl použít někdo jiný (běžky jsou zdarma, takže jsem nechtěl, aby mi ležely doma). Alespoň jsem vyměnil hůlky za menší, vhodnější pro sněžnice.
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/nico/batoh.jpg)
 *Vzorně sbaleno. Navíc se můžete pokochat nepoužitými sněžnicemi.*
 
-Očekávaná složitost výletu (20 km, z toho 6 po silnici a pak neznámo jak, co když to bude 14 se sněžnicemi) mne stále docela trápila, takže jsem se dozásobil jídlem jako správný horal (vše na maimální poměr energie na hmotnost). S batohem vybaveným snad vším oblečením, které v Norsku mám (moc toho tu nemám :D) jsem se cítil připraven na 6 hodin spánku s průvanem v pokoji, za který mohl "hurikán" (o tom už mám rozepsáno do jiného příspěvku, kde se budu zabývat i počasím).
+Očekávaná složitost výletu (20 km, z toho 6 po silnici a pak neznámo jak, co když to bude 14 se sněžnicemi) mne stále docela trápila, takže jsem se dozásobil jídlem jako správný horal (vše na maximální poměr energie na hmotnost). S batohem vybaveným snad vším oblečením, které v Norsku mám (moc toho tu nemám :D) jsem se cítil připraven na 6 hodin spánku s průvanem v pokoji, za který mohl *hurikán* (o tom už mám rozepsáno do jiného příspěvku, kde se budu zabývat i počasím).
 
 # Jde se na výlet :)
 
@@ -26,7 +26,7 @@ Ráno neochotně stávám v 7, abych stíhal sraz v 7:35 kousek od domu. Z domu 
 
 Návleky moc nefungují, na cestě z kopce mám pocit, že musím spadnout každej druhej krok. Nepadám! V půli cesty s Tomášem zjišťujeme, že naše návleky už pár hrotů postrádají, jen Marta se svou váhou skokanky na lyžích má návleky v pohodě. Na zastávku docházíme včas a máme ještě pár minut na blbnutí bez návleků.
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/nico/batoh.jpg)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/nico/hroty.jpg)
 *Hroty použity jen jednou. Něco jim po cestě chybí, někdy se budu muset rozhoupat k aktivitě a jít je reklamovat.*
 
 Za autobus platím 40 NOK jako student, zatímco Tomáš 50 NOK (taky řekl, že je student), každý pro sebe máme [jednu dvojsedačku](http://www.monda.no/ifln/the-norwegian-personal-bubble/) a po 30 minutách jsme na místě. Je mírně pod mrakem a já se rozhodnu využít otevřeného COOPu a koupit ještě větší zásobu vody.
