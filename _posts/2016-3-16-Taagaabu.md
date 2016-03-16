@@ -66,7 +66,7 @@ Ještě jsme se dívali po nějakém vlněném oblečení, ale spíše neúspě�
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/lidi.JPG)
 *Spousta lidí na hlavní trhové ulici.*
 
-Kromě trhů jsme prozkoumali suť kolem dolů, historickou uličku a něčí dvůr, ve kterém kolem ohňů Norové hrály a zpívaly folkové písně, rozdávali kávu a tradiční alkohol a celkově se úžasně radovali, asi z toho, že bylo jen -2 °C (ale větrno). Náš průzkum jsme nudně zakončili ve velkoobchodu, kde se půl hodiny čekalo ve frontě na záchod.
+Kromě trhů jsme prozkoumali hlušinu kolem dolů, historickou uličku a něčí dvůr, ve kterém kolem ohňů Norové hrály a zpívaly folkové písně, rozdávali kávu a tradiční alkohol a celkově se úžasně radovali, asi z toho, že bylo jen -2 °C (ale větrno). Náš průzkum jsme nudně zakončili ve velkoobchodu, kde se půl hodiny čekalo ve frontě na záchod.
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/ulicka.JPG)
 *Havířská ulička.*
@@ -75,7 +75,7 @@ Kromě trhů jsme prozkoumali suť kolem dolů, historickou uličku a něčí dv
 *Most na převoz rudy?*
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/celej_roros.JPG)
-*Røros v jednom obrázku: kostel, krásný a celkem vysoký most, v popředí navezená suť a lidé, kteří chtějí mrznout na saních. No to je skoro celé městečko.*
+*Røros v jednom obrázku: kostel, krásný a celkem vysoký most, v popředí navezená hlušina a lidé, kteří chtějí mrznout na saních. No to je skoro celé městečko.*
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/norove.JPG)
 *Takto si užívají trhy Norové.*
