@@ -3,7 +3,7 @@ layout: post
 title: Víkend plný překvapení (Røros a Taagaabu)
 ---
 
-K čemu je plánování výletu 3 týdny dopředu, když se vše změní den před odjezdem? To je asi nejvýznamnější překvapení víkendu 20. - 21. 2. Ale takových tvrzení, které bych mohl napsat na jeden řádek a zůstaly by krásně abstraktní je mnohem víc.
+K čemu je plánování výletu 3 týdny dopředu, když se vše změní den před odjezdem? To je asi nejvýznamnější překvapení víkendu 20. - 21. 2.
 
 Složené zase *mezinárodní*: já, Marta, [Zuzka](http://dagligliv.blog.cz/1602/r-ros-a-taagaabu) tentokrát bez Pavla, zato nově s Reném (Zuzčin spolužák, Němec) a Thomas (a parciálně také Francisco, Mariona, Martina, Cristina a ještě nějaká holka, jejíž jméno jsem si nezapamatoval a ani ho nemohu dohledat). Za fotky děkuji Renému.
 
@@ -119,38 +119,38 @@ Kromě jídla jsme se museli podělit o místo (pro zopakování: Taagaabu je pr
 
 Nakonec bylo dostatečným lákadlem slunce, které nás kolem poledne vítalo, ale už se za ním blížily mraky. Zjistili jsme, že geofyzici si šli jen bavit ven, aby nás nerušili ve spánku. Konečně se vypravíme ven a obdivujeme krásu chaty a okolí. Geofyzici vyráží na výlet a my jdeme asi půl hodiny po nich stejnou cestou. Po nějaké době se rozhodujeme, že by bylo hezké zdolat místní kopce a že je sníh krásně pevný, takže to zvládne i část skupinky bez sněžnic.
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/sneznice.jpg)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/sneznice.JPG)
 *Takto se chodí se sněžnicemi...*
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/nesneznice.jpg)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/nesneznice.JPG)
 *...a takto bez nich.*
 
 300 výškových metrů zvládáme jen s půl litrem vody, odměnou je nám kromě hrozného větru i úžasný výhled. Zvěčňujeme se a utíkáme vichru.
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_1.jpg)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_1.JPG)
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_2.jpg)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_2.JPG)
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_3.jpg)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_3.JPG)
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_4.jpg)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_4.JPG)
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_5.jpg)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_5.JPG)
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_6.jpg)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_6.JPG)
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_7.jpg)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_7.JPG)
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_8.jpg)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_8.JPG)
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_9.jpg)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_9.JPG)
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_10.jpg)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_10.JPG)
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_11.jpg)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_11.JPG)
 *René.*
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_12.jpg)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/vylet_12.JPG)
 
 Na chatu se vracíme první, balíme a já a René jdeme pro dřevo. Halda je zase pořádně daleko a pěkně hlubokým sněhem, jediná změna jsou klády břízy, které jsou ještě těžší než smrk. Zase jednou proklínám, jaká je to v tom sněhu dřina tohle tahat. Ale přinášíme 2 velké klády, takže jsme připravili fakt hodně dřeva. Když přichází geofyzici, tak nás chválí. Pak vyměňujeme zážitky a vydáváme se se zapadajícím sluncem zpět k autu (geofyzici zde budou do pondělí). Na farmě potkáváme další skupinku, která vypadá mnohem méně turisticky − igelitky v rukách značí jinou náturu, než jsme měli my a geofyzici, takže jsme zvědaví, jak to s nimi zvládli. Ptají se nás na cestu a dřevo, takže v obojím dostávají pozitivní odpovědi. Loučíme se s jiným farmářem a vyrážíme jinudy směr Trondheim.
 
