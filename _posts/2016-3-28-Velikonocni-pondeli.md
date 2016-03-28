@@ -25,13 +25,13 @@ Kromě této vrby jsem našel ještě něco podobného vrbě, co tvořilo plot n
 
 Pletení je další úkol necelého dne volna mezi výlety. Já moc neutahuju, takže jsem do 5 minut hotov, Tomáš bohužel při utahování proutek 2x láme. Ale i tak máme hezký pomlázky.
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/moje.JPG)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/pondeli/moje.JPG)
 *Smuteční vrba není jediným důvodem zkroucení. Druhý je transport v kompaktní podobě (průměrem asi 10 cm).*
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/moje_2.JPG)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/pondeli/moje_2.JPG)
 *I přes podmínky se za výsledek rozhodně nestydím.*
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/moje_3.JPG)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/pondeli/moje_3.JPG)
 
 # Akce
 
@@ -43,12 +43,12 @@ Z chaty se vracíme v 15:00, takže jsem doma a funkční až tak po 16:00. Po p
 
 Ohledně Zuzky se stává informátor Pavel, který se ozve až Zuzka přijede. Informátor ohledně Martiny nebyl tak spolehlivý, takže po nějaké době za cenu prozrazení se ptám přímo Martiny. Po 10 minutách rozhovoru konečně dostávám adresu a Martina následně pomlazení. Alkohol u mne ani u Toma vítán není, takže dostáváme tradiční Norskou sladkost.
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/kviklunsj.JPG)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/pondeli/kviklunsj.JPG)
 *Kviklunsj. KitKat s jiným obalem je skoro symbolem norského cestovního jídla.*
 
 Po 8 večer se konečně dostáváme k Zuzce, která má zrovna na návštěvě mamku a sestru. Sbíráme obdiv pomlázek, čokoládu a vyměňujeme si zážitky z velikonoc. Cestou od Zuzky se máme ještě stavit k Martě, která nám doma připravila naprosto úžasný a unikátní kraslice. Tomáš dostává *tahák* s diferenciálními rovnicemi *celé* fyziky, já dostávám znázornění a Céčkový zdroják Grayova kódu.
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/taagaabu/marta.JPG)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/pondeli/marta.JPG)
 *Kraslice pro informatika.*
 
 # Pozdrav domů
