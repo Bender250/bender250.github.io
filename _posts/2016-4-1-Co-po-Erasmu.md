@@ -7,7 +7,7 @@ Několika kamarádům co tráví Erasmus na NTNU se zachtělo zde studovat i po 
 
 # Mám co nabídnout?
 
-Bezpečnost IT je dnes tak velké téma, že se laboratoře mohou soustředit jen na nějaký výsek. V případě labu na FI ([CRoCS](https://www.fi.muni.cz/research/crocs/)) to jsou témata analýza kryptografických funkcí (statistické testování), zabezpečení bezdrátových senzorových sítí, usable security (jejda, já neumím pojmenovat Vlastin výzkum), sifrování disků a [mnoho dalšího](https://www.fi.muni.cz/research/crocs/).
+Bezpečnost IT je dnes tak velké téma, že se laboratoře mohou soustředit jen na nějaký výsek. V případě labu na FI ([CRoCS](https://www.fi.muni.cz/research/crocs/)) to jsou témata analýza kryptografických funkcí (statistické testování), zabezpečení bezdrátových senzorových sítí, usable security (jejda, já neumím pojmenovat Vlastin výzkum), šifrování disků a [mnoho dalšího](https://www.fi.muni.cz/research/crocs/).
 
 Průnik s NaCl je rozhodně nenulový, ale to nepomáhá mému zaměření. Takže co se zde dělá: [Stig](https://www.ntnu.edu/employees/sfm) (hlavní Profesor labu) pracuje na protokolech, [Colin A. Boyd](https://www.ntnu.edu/employees/colinab) je více tradiční kryptograf skrze převážně asymetrickou kryptografii, poslední *hlava* labu [Danilo Gligoroski](https://www.ntnu.edu/employees/danilog) je zase zapálen do kódování, kvantové kryptografie, tedy asi nejvzdálenější zákoutí kryptografie, které nabízí moje perspektiva.
 
