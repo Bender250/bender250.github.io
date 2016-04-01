@@ -1,6 +1,6 @@
 ---
 layout: post
-title: PhD pozice na NTNU
+title: PhD pozice na NTNU (Apríl)
 ---
 
 Několika kamarádům co tráví Erasmus na NTNU se zachtělo zde studovat i po dokončení jejich studií na domovské univerzitě (super příroda, lidi i univerzita). Tomáš podává přihlášku na Mgr obor, Marta se snaží dostat na PhD pozici a já jsem věci nechal plynout. Ale moje aktivita v laboratoři bezpečnosti ([NTNU Applied Cryptology Lab (NaCl)](http://www.item.ntnu.no/research/nacl/start)) se nějak projevila.
