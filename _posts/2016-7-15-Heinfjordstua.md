@@ -3,7 +3,7 @@ layout: post
 title: Taková jiná kabina
 ---
 
-Konečně zase nejsem organizátor. Ale dokážu si takovou roli užít? Ve velké skupině by se přeci mohl najít někdo, kdo vše připraví beze mne a já bych mohl být jen konat, co někdo vymyslel. A jaké zážitky přináší velká skupina v největší (a oficiálně nejlehčí) chatě NTNUI Heinfjordstua?
+Konečně zase nejsem organizátor. Ale dokážu si takovou roli užít? Ve velké skupině by se přeci mohl najít někdo, kdo vše připraví beze mne a já bych mohl jen konat, co někdo vymyslel. A jaké zážitky přináší velká skupina v největší (a oficiálně nejlehčí) chatě NTNUI Heinfjordstua?
 
 Termín byl 5. — 6. 3. a seznam lidí je [Marta](http://blog.amaterskelety.cz/subdom/blog/node/175), Tomáš, Thomas, Pao, Peter, Emma, Daan, Clara, Markus, Celia, Bas, Dinah, Matze, Johan, Claudia, Joanna, Floria, Florian, David a Yo ann.
 
@@ -24,7 +24,7 @@ Paralelní bylo plánování kdo pojede z mého okruhu. Thomas se přidal už zp
 
 # Cesta na chatu
 
-Ráno se na místě odjezdu setkáváme s několika známými z orientačního týdne. Spousta z nich na lehko (já za podivína se sněžnicemi, Marta a Tomáš nejen se sněžnicemi, ale i běžkami. Výbavou batohů se chlubili spíše po alkoholické stránce. *This paaarty will be crazy!* (Proč asi máme my abstinenti ty sněžnice?) Po hodně dlouhé době se domlouváme, kdo pojede busem (ti co maji kartičku), a kdo autem (rodinné pro 7). Jedu autem s něměckým párem Claudie a Matze, Němkou Dinah, Tomem a Martou (Marta někomu půjčila kartičku?).
+Ráno se na místě odjezdu setkáváme s několika známými z orientačního týdne. Spousta z nich na lehko (já za podivína se sněžnicemi, Marta a Tomáš nejen se sněžnicemi, ale i běžkami). Výbavou batohů se chlubili spíše po alkoholické stránce. *This paaarty will be crazy!* (Proč asi máme my abstinenti ty sněžnice?) Po hodně dlouhé době se domlouváme, kdo pojede busem (ti co maji kartičku), a kdo autem (rodinné pro 7). Jedu autem s něměckým párem Claudie a Matze, Němkou Dinah, Tomem a Martou (Marta někomu půjčila kartičku?).
 
 Po dálnici celkem v pohodě, ale v menších uličkách města se začala ukazovat nevyježděnost řidiče. Tu potvrdil sníh v zatáčkách, kdy jsem raději místo sledování provozu začal diskutovat s Claudií, jinak bych to totiž asi nevydržel a musel si to odřídit sám. Poslední odbočku jsme tak nějak minuli, protože jsem řekl, že máme odbočit moc *pozdě* (řidič cestu neznal, ale nějak ho to netrápilo, já musel GPS alespoň trochu sledovat, *pozdě* bylo asi 10 sekund při rychlosti 50 km/h). Před zaparkováním jsme ještě zvládli stanovit nový rekord rychlosti před horizontem, kdy jsem nás už viděl v patníku zatáčky, ale řidič to bravurně bez mrknutí strhl a všechny nás bezpečně dovezl na parkoviště, odkud jsme naštěstí museli zbylé 3 km po svých.
 
@@ -47,7 +47,7 @@ Po jezeře se šlo proměnlivě — občas velké propadání, občas byl sníh 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/hein/creepe_tree_with_ball.JPG)
 *Divný strom se sněhovou koulí.*
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/hein/jezero.JPG)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/hein/jezero.jpg)
 *Panorama v takovém počasí moc majestátně nepůsobí. Alespoň vystihuje pocit ze středu jezera.*
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/hein/from_top.JPG)
@@ -83,7 +83,7 @@ Druhý den jsme posnídali chleby s marmeládou a já rozdával bábovku. Úklid
 
 Při čekání na auto si ještě Tom s Martou zvládli objet jedno menší jezero na běžkách, takže se s nimi opravdu vyblbli.
 
-Cestou zpět jsme v si zasmykovali v zatáčkách na sněhu, což už Tom nevydržel a řidiče zkrotil (já už jsem to nezvládal ani ignorovat a čekal jsem s rukou u volantu). Zvláštní, že svou jízdu moc nevypiloval, když už daným místem projížděl po stopadesáté. V Trondheimu ještě zvládl řidič naprosto odignorovat chodce u přechodu (kterého viděl z dálky asi tak 100 metrů a celých 5 vteřin váhal, zda zpomalí, ale nakonec na Čecha držel padesátku a chodce nepustil). Chodce to dost urazilo (v Norsku je to vzácný případ).
+Cestou zpět jsme si zasmykovali v zatáčkách na sněhu, což už Tom nevydržel a řidiče zkrotil (já už jsem to nezvládal ani ignorovat a čekal jsem s rukou u volantu). Zvláštní, že svou jízdu moc nevypiloval, když už daným místem projížděl po stopadesáté. V Trondheimu ještě zvládl řidič naprosto odignorovat chodce u přechodu (kterého viděl z dálky asi tak 100 metrů a celých 5 vteřin váhal, zda zpomalí, ale nakonec na Čecha držel padesátku a chodce nepustil). Chodce to dost urazilo (v Norsku je to vzácný případ).
 
 Za víkend jsme zaplatili tuším 750 Kč se vším všudy, auto nás vyšlo na 6000 Kč (mohlo být pod 3000 Kč, kdyby se řešilo dřív a jinak). Ale nemusel jsem nic organizovat :D.
 
