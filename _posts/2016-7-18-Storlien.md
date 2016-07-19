@@ -37,7 +37,7 @@ Plánem na sobotu byl vodopád [Brudslöjan](https://sv.wikipedia.org/wiki/Bruds
 
 Jelikož jsme všichni připravili buchtu, tak se Johan cítil jako špatný hostitel a rozhodl se připravit tradiční Kanel bollers. Kromě toho ještě na večer připravoval pizzu, takže byl rozhodně úžasným hostitelem.
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/storlien/stairs.JPG)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/storlien/pizza.JPG)
 *Johana za hostitele proste chcete :). Ale na pizze už jsme se podíleli všichni.*
 
 Večer ještě šli někteří běžkovat, já s Moritzem jsme zůstali doma (já jsem nevydržel se neučit, Moritz si četl norskou literaturu, protože se po škole chce stát lékařem v Norsku. A jeho úroveň Norštiny mne fascinovala, po cca 2 letech studia ji uměl lépe, než já Anglicky, měl bych se stydět).
@@ -48,7 +48,7 @@ V neděli byl lyžovací den, Martu ale trápily nohy a tak jsme šli na výlet 
 
 Večer jsme udělali menší výlet po okolí a rozhodli jsme se vrátit na chatu nejnevhodnější cestou asi 200 % stoupání (na metr vodorovně jsme vystoupili tak 2 metru horizontálně, snad se to takto počítá). Pak jsme ještě asi hodinu bojovali ve sněhu (na tomto výletu oblíbená aktivita, celkem možná tak 4 hodiny z celého prodlouženého víkendu? :D). Po totálním promoknutí mne fascinoval sušák oblečení, ve kterém vše hned vysychalo (za cenu spotřeby 2 kW, kterou ale nikdo ve Skandinávii neřeší).
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/storlien/path.jpg)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/storlien/slope.jpg)
 *Za horizontem (v levé polovině) je naše chata a ten svah přede mnou jsme ještě ve strmějším místě zdolali. Kdo si hraje, nezlobí.*
 
 V pondělí šli zase všichni běžkovat, já jsem se vydal na sněžnicích na vrchol lyžarského areálu a výše k chrámu větru (Vindarnas tempel). Bylo krásné počasí a já si to šlapal ve stopě vleku, kde absolutně nikdo nejezdil (jeden pár vyjel krátce po tom, co jsem došel na konec). Pak ještě něco přes kilometr po značení alá železniční přejezd. Při tom se zhoršilo počasí, vešel jsem do mraku a začalo hodně sněžit a *překvapivě* i hodně foukat. Chrám dostál jménu a já byl rád, že mě chrání před větrem. Poobědval jsem norský tradiční Kvikklunsj, kochal se nulovým výhledem a podepsal se do sněhu.
