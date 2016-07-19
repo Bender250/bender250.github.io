@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Taková jiná kabina
+title: Švédsko — Størlien
 ---
 
 Týden před velikonocemi mají Norové pěkný studentský zvyk — týden prázdnin. Domácí úkoly jsem zvládl zařídit předem (a jiné odložit na později), takže jsem měl přes týden volna. První plánem byl 3 denní pobyt v chatě u Švéda Johana ve Störlienu, který studuje na NTNU a Tomáš se s ním znal ze Studenterhytty (Johan v ní působí).
