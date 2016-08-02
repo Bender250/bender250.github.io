@@ -32,7 +32,7 @@ Po dlouhé době jsme konečně v plné tmě našli chatu a začali se věnovat 
 
 V rámci průzkumu chaty jsem se snažil dostat do horního patra (Holmså je stejně jako Heinfjord velká chata — 20 lidí, takže má 2 patra). Při průzkumu mi to uklouzlo, já spadl pár schodů a při dopadu si zlomil nehet na palci. Příjemná věc první den puťáku :D. Takže jsme se rozhodli spát dole (na lavicích a stole), protože nahoře byla stejně větší zima.
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/cabtocab/sunset.JPG)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/cabtocab/cleaning.JPG)
 *Slavná fotka kvůli tomu, že umývám nádobí ve sněhu v papučích. Po tom pádu bych ani boty nasazovat nechtěl, ale Tom s martou z toho měli vánoce. Já si spíš vzpomínám na mrznoucí ruce.*
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/cabtocab/holmsa.JPG)
