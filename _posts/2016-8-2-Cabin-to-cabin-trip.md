@@ -135,5 +135,5 @@ A tak jsme k zastávce přijeli asi 3 hodiny předem, což jsme Tomovi nechali s
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/cabtocab/waterfall_1.JPG)
 *Zajímavý vodopád.*
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/cabtocab/waterfall_1.JPG)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/cabtocab/waterfall_2.JPG)
 *Který měl úžasnou strukturu ledu.*
