@@ -5,17 +5,17 @@ title: Cabin-to-cabin trip (puťák)
 
 NTNUI spravuje celkem 22 chat. Ačkoliv někteří zvládnou navštívit všechny za měsíc, pokud my chceme vidět alespoň polovinu, budeme občas muset změnit strategii víkendový výlet na jednu chatu. Naštěstí máme velikonoční týden prázdnin a tak můžeme naplánovat puťák po chatách, které jsou seskupeny celkem blízko sebe v oblasti Tydal.
 
-A tak se realizuje plán cesty [Holmsåkoia](http://org.ntnu.no/koiene/koiene/koiene.php?k=holmsaakoia) — [Stabburet](http://org.ntnu.no/koiene/koiene/koiene.php?k=stabburet) — [Hognabu](http://org.ntnu.no/koiene/koiene/koiene.php?k=hognabu). Termín 22. - 25. 3., složení já, Tomáš, Marta a Thomas. Víc nás nemůže, protože kapacita Stabburetu je jen 2. Jak jsme se tam zvládli vměstnat?
+A tak se realizuje plán cesty [Holmsåkoia](http://org.ntnu.no/koiene/koiene/koiene.php?k=holmsaakoia) – [Stabburet](http://org.ntnu.no/koiene/koiene/koiene.php?k=stabburet) – [Hognabu](http://org.ntnu.no/koiene/koiene/koiene.php?k=hognabu). Termín 22. - 25. 3., složení já, Tomáš, Marta a Thomas. Víc nás nemůže, protože kapacita Stabburetu je jen 2. Jak jsme se tam zvládli vměstnat?
 
 # Příprava
 
 Zatímco ve Švédsku jsem litoval, že nemám běžky, na tomto putování už jsem takovou chybu nechtěl opakovat. S mou velikosti nohy je ale shánění od kamarádů náročné. Naštěstí má Marta spolubydlícího Floriana, který je ještě o 5 cm vyšší a má o číslo větší botu a pořídil si své vlastní běžky, které ale nepoužívá. Za (pravou) Nutellu mi je trochu nelibě půjčuje s několikaminutovým předváděním všech škrábanců, které na lyžích jsou... Trochu jsem se od tohoto momentu bál, že pokud lyže rozbiju, tak musím utéci ze země.
 
-Zbytek balení byl možná o něco těžší (snaha minimalizovat váhu -> neberu zrcadlovku — za fotky děkuji Tomášovi), ale po těch zkušenostech z minula už to byla stejně rutina — sněžnice, běžky a bábovka.
+Zbytek balení byl možná o něco těžší (snaha minimalizovat váhu -> neberu zrcadlovku – za fotky děkuji Tomášovi), ale po těch zkušenostech z minula už to byla stejně rutina – sněžnice, běžky a bábovka.
 
-# Moholt — Holmsåkoia
+# Moholt – Holmsåkoia
 
-Odjezd měl být ve středu odpoledne (kolem čtvrté), ráno jsem však zjistil, že můžeme ušetřit 2 hodiny a vyrazit dříve. Díky tomu jsme všichni v přípravě trochu nestíhali — napéci a zajistit mapy se trochu zkomplikovalo, ale (skoro) vše jsme stihli.
+Odjezd měl být ve středu odpoledne (kolem čtvrté), ráno jsem však zjistil, že můžeme ušetřit 2 hodiny a vyrazit dříve. Díky tomu jsme všichni v přípravě trochu nestíhali – napéci a zajistit mapy se trochu zkomplikovalo, ale (skoro) vše jsme stihli.
 
 Skoro znamená, že já zapomněl nějaké jídlo, co jsem slíbil, že zajistím a Tomáš a Thomas zapomněli kartáček. Vše jsme zvládli vyřešit při přestupu, kdy jsme s Thomasem doběhli do nejbližšího obchodu a ostatní nám podrželi bus :).
 
@@ -24,13 +24,13 @@ Co už nevyšlo, byl výstup na správné zastávce. Řidič autobusu zastávku,
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/cabtocab/sunset.JPG)
 *Západ slunce se 3 siluetami pochodujících bežkařů.*
 
-Po hodině jsme došli na správné místo výstupu a tak jsme dřívějším busem ušetřili nakonec jen asi 40 minut. Kousek od silnice už končila odklizená část cesty a my jsme se začali přezouvat do běžkařských bot. Posilnili jsme se a skoro se západem sluce jsme se vydali na 4 km v rozšlapané stopě. Marta měla skejtovací běžky a v nich se moc v rozbité stopě jezdit nedalo, takže jsme se rozhodli rozdělit — já s Thomasem zkusíme přijít na chatu a zatopit, zatímco Tom podpoří Martu a dojedou už do vyhřátého.
+Po hodině jsme došli na správné místo výstupu a tak jsme dřívějším busem ušetřili nakonec jen asi 40 minut. Kousek od silnice už končila odklizená část cesty a my jsme se začali přezouvat do běžkařských bot. Posilnili jsme se a skoro se západem sluce jsme se vydali na 4 km v rozšlapané stopě. Marta měla skejtovací běžky a v nich se moc v rozbité stopě jezdit nedalo, takže jsme se rozhodli rozdělit – já s Thomasem zkusíme přijít na chatu a zatopit, zatímco Tom podpoří Martu a dojedou už do vyhřátého.
 
 Nějakou dobu jsem držel pomalejší tempo s Thomasem, ale pak jsem ho chtěl breakem trochu popohnat, což se nepovedlo a nakonec jsem na něj kvůli tmě raději počkal. Sdíleli jsme jednu čelovku a cesta nás stále překvapovala tím, že nebyla u konce.
 
 Po dlouhé době jsme konečně v plné tmě našli chatu a začali se věnovat ohni. Marta (na sněžnicích) s Tomem dorazili asi 10 minut po nás, takže jsem akorát stihl zatopit, ale ještě rozhodně nebylo v chatě teplo ani jsme nezačali připravovat jídlo, což Martu a Toma překvapilo.
 
-V rámci průzkumu chaty jsem se snažil dostat do horního patra (Holmså je stejně jako Heinfjord velká chata — 20 lidí, takže má 2 patra). Při průzkumu mi to uklouzlo, já spadl pár schodů a při dopadu si zlomil nehet na palci. Příjemná věc první den puťáku :D. Takže jsme se rozhodli spát dole (na lavicích a stole), protože nahoře byla stejně větší zima.
+V rámci průzkumu chaty jsem se snažil dostat do horního patra (Holmså je stejně jako Heinfjord velká chata – 20 lidí, takže má 2 patra). Při průzkumu mi to uklouzlo, já spadl pár schodů a při dopadu si zlomil nehet na palci. Příjemná věc první den puťáku :D. Takže jsme se rozhodli spát dole (na lavicích a stole), protože nahoře byla stejně větší zima.
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/cabtocab/cleaning.JPG)
 *Slavná fotka kvůli tomu, že umývám nádobí ve sněhu v papučích. Po tom pádu bych ani boty nasazovat nechtěl, ale Tom s martou z toho měli vánoce. Já si spíš vzpomínám na mrznoucí ruce.*
@@ -38,9 +38,9 @@ V rámci průzkumu chaty jsem se snažil dostat do horního patra (Holmså je st
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/cabtocab/holmsa.JPG)
 *Půlnoční fotka Holmsåkoiy, s měsícem v úplňku a dlouhým časem působí, jako kdyby byla focena ve dne :).*
 
-# Holmsåkoia — Stabburet
+# Holmsåkoia – Stabburet
 
-Ráno jsme posnídali část zásob (já začal váhat, zda se svou rozežraností nebudu strádat a tak jsem se rozhodl sníst i nějaké zásoby na chatě, které zde nechala předchozí skupina (což se kvůli myším nemá) — představte si do müsli přidat borůvkovou marmeládu :D). Pak Tom využil toho, že Holmså je jediná chata s klavírem (dokonce prý ani ne rozladěný) a tak nám moc pěkně zahrál.
+Ráno jsme posnídali část zásob (já začal váhat, zda se svou rozežraností nebudu strádat a tak jsem se rozhodl sníst i nějaké zásoby na chatě, které zde nechala předchozí skupina (což se kvůli myším nemá) – představte si do müsli přidat borůvkovou marmeládu :D). Pak Tom využil toho, že Holmså je jediná chata s klavírem (dokonce prý ani ne rozladěný) a tak nám moc pěkně zahrál.
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/cabtocab/piano.JPG)
 *Tom hraje.*
@@ -61,7 +61,7 @@ Poslední metry k silnici znamenaly vydrápat se hodně prudkým stoupáním v e
 Druhou polovinu cesty skončila posypaná silnice a my konečně mohli nasadit běžky. Krásná stopa byla fajn i pro Martu (ale nevydržela dlouho, takže po nějaké době skončila zase na sněžnicích) a i já jsem se rozhodl učit skejtovat. S vroubkovanými bezvoskovými běžkami to sice nebylo ono, ale překvapivě se mi po asi minutovém kurzu od Toma i trochu dařilo. Krajina se úžasně měnila, a pak jsme uviděli úžasnou miniaturní chatu :).
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/cabtocab/skiing.JPG)
-*Vzácná chvíle — všichni běžkujeme :).*
+*Vzácná chvíle – všichni běžkujeme :).*
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/cabtocab/zavej.JPG)
 *Malá závěj. Nespadne to jako lavina? Aha, my jdeme pár desítek metrů pod tím.*
@@ -92,7 +92,7 @@ Večer jsme hráli 3D tetris s vybavením kabiny, který vyklidil místo pro mne
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/cabtocab/tetris_3.JPG)
 *A takto to mělo uvnitř vypadat.*
 
-# Stabburet — Hognabu
+# Stabburet – Hognabu
 
 Ráno jsem nezvládal dospat kvůli trochu chrupkajícímu Thomasovi a hodně zařezávajícímu Tomášovi (vracím stěžování si z Nico :P). Ten nás probudil všechny a nijak jeho chrápání vypnout nešlo. Znovu usnout už moc nešlo ani kvůli chladnu, takže jsme alespoň snídali trochu dříve.
 
@@ -119,7 +119,7 @@ Já, Marta a Thomas jsme šli bez spacáků, které jsme nepotřebovali ani rán
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/cabtocab/night.JPG)
 *Tom na místě, kde následně spal.*
 
-# Hognabu — Moholt
+# Hognabu – Moholt
 
 Ráno jsme všichni proklínali Toma, že je tak akční a donutil nás vstávat v 6. Bylo pochopitelné, že jsme chtěli nějakou rezervu na bus, protože ten jel zpět jen jeden. I tak jsme se balili značně nelibě. Při balení jsem ztratil (tenkou) rukavici, kterou jsem ve spěchu nemohl lépe hledat :(. Ta mi od tohoto výletu ještě několikrát fakt chyběla :/.
 
@@ -128,7 +128,7 @@ Ráno jsme všichni proklínali Toma, že je tak akční a donutil nás vstávat
 
 Cesta z chat zpět většinou vede z kopce. Z kopce je na běžkách pořádná sranda, protože nám to moc nejde. A proto byla cesta z Hognabu asi to nejlepší běžkování, co jsem kdy zažil. I Marta nasadila běžky a příležitostí k pádům bylo opravdu spoustu: hluboký sníh, moc velká rychlost před korytem, vyjeté stopy rozbité skůtrem... A tak jsme asi hodinu padali a padali a padali, většinou asi Thomas a já, a tak jsme se naprosto úžasně nasmáli (a směju se znova, když vidím fotky :D).
 
-Když už jsme neměli na naší cestě příležitost k padání, tak jsme si ji vytvořili — rozhodli jsme se sjíždět nějaké další svahy. Ale to jsme nečekali, že největší výzva je až konec cesty — více než kilometrový sjezd ve stopě, kde skoro nešlo brzdit. A já jej jako jediný hrdinsky zvládl bez pádu!!!
+Když už jsme neměli na naší cestě příležitost k padání, tak jsme si ji vytvořili – rozhodli jsme se sjíždět nějaké další svahy. Ale to jsme nečekali, že největší výzva je až konec cesty – více než kilometrový sjezd ve stopě, kde skoro nešlo brzdit. A já jej jako jediný hrdinsky zvládl bez pádu!!!
 
 A tak jsme k zastávce přijeli asi 3 hodiny předem, což jsme Tomovi nechali sežrat, ale využili jsme to na procházku podél silnice a následný výšlap na vyhlídku, což za to stálo :).
 

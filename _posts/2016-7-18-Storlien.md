@@ -1,11 +1,11 @@
 ---
 layout: post
-title: Švédsko — Størlien
+title: Švédsko – Størlien
 ---
 
-Týden před velikonocemi mají Norové pěkný studentský zvyk — týden prázdnin. Domácí úkoly jsem zvládl zařídit předem (a jiné odložit na později), takže jsem měl přes týden volna. První plánem byl 3 denní pobyt v chatě u Švéda Johana ve Störlienu, který studuje na NTNU a Tomáš se s ním znal ze Studenterhytty (Johan v ní působí).
+Týden před velikonocemi mají Norové pěkný studentský zvyk – týden prázdnin. Domácí úkoly jsem zvládl zařídit předem (a jiné odložit na později), takže jsem měl přes týden volna. První plánem byl 3 denní pobyt v chatě u Švéda Johana ve Störlienu, který studuje na NTNU a Tomáš se s ním znal ze Studenterhytty (Johan v ní působí).
 
-Termín 18. — 21. 3. a složení Tomáš, Johan, Marta, Sofie a Roxane a Moritz.
+Termín 18. – 21. 3. a složení Tomáš, Johan, Marta, Sofie a Roxane a Moritz.
 
 # Příprava
 
@@ -15,7 +15,7 @@ Také jsme byli zaúkolováni vzít si nějaké jídlo, ale ve Störlienu má b�
 
 # Cesta a večer
 
-Jeli jsme vlakem, což byl mnohem lepší zážitek, než cesta busem do Störlienu (už jsem tam byl nakupovat busem — na Čechy jsme váhali, zda bychom se tam, nebo zpět právě tímto zdarma busem nesvezli i tentokrát). S cestou do vnitrozemí přibývalo sněhu a já si hezky pokecal se Švédkou Sofií. Zjistil jsem, že budu jediný bez běžek, což mne moc nenadchlo.
+Jeli jsme vlakem, což byl mnohem lepší zážitek, než cesta busem do Störlienu (už jsem tam byl nakupovat busem – na Čechy jsme váhali, zda bychom se tam, nebo zpět právě tímto zdarma busem nesvezli i tentokrát). S cestou do vnitrozemí přibývalo sněhu a já si hezky pokecal se Švédkou Sofií. Zjistil jsem, že budu jediný bez běžek, což mne moc nenadchlo.
 
 Do Störlienu jsme se dostali se setměním, takže obchody právě zavíraly a já tím pádem skoro neměl co k jídlu, než svačinu a bábovku. Na nádraží nás vítal Johan a v tu chvíli spadl můj domeček z karet ke komu že to vlastně jedeme.
 
@@ -60,7 +60,7 @@ V pondělí šli zase všichni běžkovat, já jsem se vydal na sněžnicích na
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/storlien/temple_sign.jpg)
 
-Cestou zpět jsem dokonce potkal běžkaře, kteří se nahoru vydali též. Později jsem ještě zalezl do Teepee, které jsem obdivoval už cestou nahoru, ale nechal jsem jej na později. I zde by se dalo v pohodě přespat — dřevo a všechno bylo dostupné. Také jsem byl fascinován spoustou laviček (našel jsem jich asi 10 všude možně). Ke konci výletu jsem si pokecal s jinými Nory (trochu i Norsky! :D), vysvětlili mi lavičky — ve Störlienu je sanatorium a počítá se s tím, že zde spousty pacientů chodí na výlety :).
+Cestou zpět jsem dokonce potkal běžkaře, kteří se nahoru vydali též. Později jsem ještě zalezl do Teepee, které jsem obdivoval už cestou nahoru, ale nechal jsem jej na později. I zde by se dalo v pohodě přespat – dřevo a všechno bylo dostupné. Také jsem byl fascinován spoustou laviček (našel jsem jich asi 10 všude možně). Ke konci výletu jsem si pokecal s jinými Nory (trochu i Norsky! :D), vysvětlili mi lavičky – ve Störlienu je sanatorium a počítá se s tím, že zde spousty pacientů chodí na výlety :).
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/storlien/teepee.jpg)
 *Dřevěné teepee, uvnitř celkem čisto, nějaké dřevo :).*
