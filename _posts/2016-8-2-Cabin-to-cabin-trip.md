@@ -1,4 +1,7 @@
-Cabin-to-cabin trip (puťák)
+---
+layout: post
+title: Cabin-to-cabin trip (puťák)
+---
 
 NTNUI spravuje celkem 22 chat. Ačkoliv někteří zvládnou navštívit všechny za měsíc, pokud my chceme vidět alespoň polovinu, budeme občas muset změnit strategii víkendový výlet na jednu chatu. Naštěstí máme velikonoční týden prázdnin a tak můžeme naplánovat puťák po chatách, které jsou seskupeny celkem blízko sebe v oblasti Tydal.
 
