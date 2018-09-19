@@ -1,8 +1,15 @@
 ---
 layout: page
-title: O tomto blogu a mém pobytu
+title: About this site
 permalink: /about/
 ---
+
+# Welcome on my blogs from abroad
+
+There are two blogs run by this website. An [Erasmus blog from Norway](https://bender250.github.io/) and [blog from my PhD in Switzerland](https://bender250.github.io/eth.htm)
+
+
+### Intro from Erasmus blog below
 
 Na tomto blogu budu zveřejňovat zážitky z Erasmu v Trondheimu v Norsku.
 
