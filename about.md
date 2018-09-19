@@ -6,7 +6,7 @@ permalink: /about/
 
 # Welcome on my blogs from abroad
 
-There are two blogs run by this website. An [Erasmus blog from Norway](https://bender250.github.io/) and [blog from my PhD in Switzerland](https://bender250.github.io/eth.htm)
+There are two blogs run by this website. An [Erasmus blog from Norway](https://bender250.github.io/) and [blog from my PhD in Switzerland](https://bender250.github.io/eth/)
 
 
 ### Intro from Erasmus blog below
