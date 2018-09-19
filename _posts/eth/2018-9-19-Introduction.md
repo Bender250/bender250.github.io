@@ -14,5 +14,5 @@ The blog will be in English, so it is available to my Erasmus friends, my school
 
 Each post should have some image, so here is a picture I took on short hike after my first interview visit.
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/eth/intro/switzerland.JPG)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/eth/intro/svycarsko.jpg)
 *Typical Switzerland*
