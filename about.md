@@ -6,7 +6,7 @@ permalink: /about/
 
 # Karel living abroad
 
-Welcome to a blog I am using to reach my friends (not only) in Czech Republic
+Welcome to a blog I am using to reach my friends (not only) in Czech Republic. I will update *about page* later.
 
 
 ### Intro from Erasmus blog below
