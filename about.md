@@ -4,9 +4,9 @@ title: About this site
 permalink: /about/
 ---
 
-# Welcome on my blogs from abroad
+# Karel living abroad
 
-There are two blogs run by this website. An [Erasmus blog from Norway](https://bender250.github.io/) and [blog from my PhD in Switzerland](https://bender250.github.io/eth/)
+Welcome to a blog I am using to reach my friends (not only) in Czech Republic
 
 
 ### Intro from Erasmus blog below
