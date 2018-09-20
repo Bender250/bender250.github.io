@@ -1,7 +1,6 @@
 ---
 layout: post
 title: About this blog
-target:eth
 ---
 
 In last year, I tried to apply to several universities and top companies across Nordic countries and Switzerland. I somehow passed four interviews, and at the beginning of July, I was accepted for PhD at [ETH Zurich by supervision of Professor David Basin at Information Security Group](http://www.infsec.ethz.ch/). The contract started by the 1st of September.
