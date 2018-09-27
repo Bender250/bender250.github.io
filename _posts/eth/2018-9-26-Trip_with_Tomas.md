@@ -54,10 +54,10 @@ In the altitude of 2150 masl, there is a lake from melting glacier. It is much b
 After the bath, we walked around part of the lake and seen a glacier cave and the border of the ice and water. It was surprising how active it is, as there were always falling stones or cracking sounds. The extent of the glacier under the sand surprised me as well.
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/eth/trip01/cave1.JPG)
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/eth/trip01/cave2.JPG)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/eth/trip01/tom.JPG)
 *Glacier cave.*
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/eth/trip01/tom.JPG)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/eth/trip01/cave2.JPG)
 *Tom by cave.*
 
 On the way back, we stacked for almost an hour in a traffic jam. Everyone is arriving in Zurich on Sunday's evening; I should expect that next time.
