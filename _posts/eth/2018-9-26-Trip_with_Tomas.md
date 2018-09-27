@@ -12,7 +12,7 @@ Großen Mythen is 1899 meters high mountain above town Schwyz, just 60 km from Z
 When we started [our hike](https://en.mapy.cz/s/33X9m), we were surprised by the mountain shape. If I were not informed that there is a *touristic highway* to the top, I would be afraid of how we will make it.
 
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/eth/trip01/mythen.jpg)
-*This seemed steeper than Skuta (Slovenia), where I get known my limits during last summer.*
+*This seemed steeper than Skuta (Slovenia), where I have got known my limits during last summer.*
 
 The path was maintained well and allowed frequent passing with crowds of tourists. We made the 1000 meters elevation surprisingly in less than estimated 2,5 hours.
 
