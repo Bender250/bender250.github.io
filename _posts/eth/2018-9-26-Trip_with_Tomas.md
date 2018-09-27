@@ -29,10 +29,13 @@ There is a cabin on the top and a beautiful view. We had a view to the north; ho
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/eth/trip01/top2.jpg)
 *Zurich was sometimes visible in this direction, but not long enough for me to take its picture.*
 
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/eth/trip01/lake.jpg)
+*The Großen Mythen was visible almost everywhere, where we drove that day.*
+
 
 We decided to sleep by a smaller [lake](https://en.mapy.cz/s/35otH), where supposed to be a camping area. It was closed but accessible, so we ensured if it will be legal to sleep there by asking the neighbors of the camp. They allowed it, but besides they cared if we won't need anything, which was surprising and kind. We were gifted their grown apples, water and they left us to store thrash by them. They also worried if we won't get cold (no problem, until I realized I forgot to take the tent for the trip, but sleeping under a small roof was fine, just sorry Tom O:)). I love such politeness in Switzerland similar to the Nordic one.
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/eth/trip01/lake.jpg)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/eth/trip01/lake2.jpg)
 *We breakfasted with this view on the lake. The Großen Mythen is visible.*
 
 The [hike for glacier lake in Klausen pass](https://en.mapy.cz/s/35ot3) was my idea. I cannot refuse the challenge of swimming in cold lakes. The only expected issue of this hike was the noise of drivers enjoying the nice serpentines. The landscape was gorgeous, and the hike was simple.
