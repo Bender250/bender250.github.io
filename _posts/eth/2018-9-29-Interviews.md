@@ -3,7 +3,7 @@ layout: post
 title: Interviews
 ---
 
-The plan for moving abroad started to take shape during the Erasmus. I tried several internships and full-time positions by companies and universities. I will try to list everything :D. Assume it will be useful for someone. I leave the success story about ETH to the end of the post.
+The plan for moving abroad started to take shape during the Erasmus. I tried several internships and full-time positions by companies and universities. I will try to list everything :D, assuming it will be useful for someone. I leave the success story about ETH to the end of the post.
 
 ## Research facilities
 
