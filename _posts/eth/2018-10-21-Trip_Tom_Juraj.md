@@ -13,7 +13,7 @@ At 9, it was cloudy in Zurich, so we wondered how it will be for the hike. But o
 ![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/eth/trip02/clouds.jpg)
 *We are getting above the clouds by car. And I do not drive so I can take pictures :).*
 
-![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/eth/trip02/lake.jpg)
+![](https://raw.githubusercontent.com/Bender250/bender250.github.io/master/images/eth/trip02/mist.jpg)
 *Starting almost above the clouds. And I liked the mist on the left, but it disappeared within a few minutes.*
 
 After climbing 600 meters up, we got out of a forest, and the sun warmed our hike a lot. It was hot for October, I felt overheating in a t-shirt.
