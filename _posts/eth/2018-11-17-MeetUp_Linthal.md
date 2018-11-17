@@ -1,4 +1,7 @@
-# MeetUp hike
+---
+layout: post
+title: MeetUp hike
+---
 
 I am still eager to meet some same-minded people for hiking. So I signed for a MeetUp trip.
 
