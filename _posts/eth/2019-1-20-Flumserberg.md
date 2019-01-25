@@ -28,4 +28,4 @@ I was a great teacher of skating technique. I fell just after 2 meters after put
 
 Surprisingly, we managed the way back without troubles, although part of it was a red piste. It was definitely fun!
 
-PS: I have a new camera, so you can expect better pictures. Maybe it is not obious in this post, as the weather was not too photo-friendly. Also the compression for web is quite significant.
+PS: I have a new camera, so you can expect better pictures. Maybe it is not obvious in this post, as the weather was not too photo-friendly. But it will get better ;).
