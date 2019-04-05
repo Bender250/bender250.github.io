@@ -1,6 +1,6 @@
 ---
 layout: post
-title: demanding hiking weekend
+title: Demanding hiking weekend
 ---
 
 During March, the weather in Switzerland went from winter directly to summer. That was my feeling from weekend 30-31st March.
