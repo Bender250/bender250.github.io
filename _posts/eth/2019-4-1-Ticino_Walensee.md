@@ -68,7 +68,6 @@ From the pass, we had views to [Alpstein](https://bender250.github.io/Alpstein/)
 *View over the lake. Lake fountains are popular in Switzerland.*
 
 ![](https://lh3.googleusercontent.com/M7w3b1KTkT_BPBpguyMewW70BLeHGa58cvxIWvr6zWch01ctQ5VYMwXBaX2d1iFwz3iHVgHLagbDiEt4TeNJvGxckrN4X3ON1U1__4wFPp41gLCq8ua9NHcgqfgAHQBzk81tOD-fTS0=w2560-h1365-no)
-**
 
 ![](https://lh3.googleusercontent.com/cEkkqXQhUhnZ-ZolGQELFMHoruvSzTdgfR8jSa1I-r6mn5EkWlqeBsQ8F1RrZkIH8GHwP9elH3Vz6BJ9W9XbBH29nN4oYfVOWY2TRUZ0L_9ICPvh1rF0M9mziLSOpIq-pzBe4NsyLHU=w2160-h1440-no)
 *There was a swimming opportunity after this hike. A chance to cool the muscles down :). The water temperature was 9 degrees, enough for not being the only swimmer.*
