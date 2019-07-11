@@ -1,6 +1,6 @@
 ---
 layout: post
-title: My first 4k mountain
+title: Skiing in late June, my first 4k mountain
 ---
 
 I have been silent for more than two months. The main reason was the end of the semester when I was busy with teaching. And given the bad weather, I was rather working, studying for paragliding theory exam (I passed!), and doing home tasks, than going for some fancy trips.
