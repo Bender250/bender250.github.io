@@ -43,8 +43,8 @@ Most of my views on Sunday were around Lac de Moiry, who could not be fascinated
 ![](https://lh3.googleusercontent.com/NVNUy-tI28Ny1sjOgkf9UoTVPbWgQ54ABj5_UFf9DeTdpIUXLD18foSSLGih57c5kblBbD4nsGaDCoR557_orbdeF6tHbWK725aGaczwRIJ_0uiQvznXRSnTlCdqtpB-r40UVYa37Ko=w2160-h1440-no)
 *Lac de Moiry, now I stand in the ocean.*
 
-[![](https://lh3.googleusercontent.com/nybZyPUaDkIZQgxqyWyYmatYa-cCBm296wM-HbXWAuHm8L_SOAjqrg4cOeaF_Ed1wuCA8ho1A8gka6Pn0mSGHA1CVQSz47xXSIhVBl7Ro8JhO8lk7rskPxH8MwFGCdt1aYGJead3To8=w4320-h2880-no)]()
-*Sad history of the glacier. Click the image to enlarge it.*
+![](https://lh3.googleusercontent.com/nybZyPUaDkIZQgxqyWyYmatYa-cCBm296wM-HbXWAuHm8L_SOAjqrg4cOeaF_Ed1wuCA8ho1A8gka6Pn0mSGHA1CVQSz47xXSIhVBl7Ro8JhO8lk7rskPxH8MwFGCdt1aYGJead3To8=w4320-h2880-no)
+*Sad history of the glacier. Click [here](https://lh3.googleusercontent.com/nybZyPUaDkIZQgxqyWyYmatYa-cCBm296wM-HbXWAuHm8L_SOAjqrg4cOeaF_Ed1wuCA8ho1A8gka6Pn0mSGHA1CVQSz47xXSIhVBl7Ro8JhO8lk7rskPxH8MwFGCdt1aYGJead3To8=w4320-h2880-no) to enlarge it.*
 
 ![](https://lh3.googleusercontent.com/HuHLuVrs7hoA7zJU8-fpRmcULo6BfO2FDt1K-Nd4RVLVND8nzrHxwQTCKSHLDotMsEPpFZAH3-K4iYaGOKfiaF6sF3sofZm5Y-8VNKd-94CS3RylOeelfSzHMo0qjA46PN8VuYKwYnI=w2160-h1440-no)
 
