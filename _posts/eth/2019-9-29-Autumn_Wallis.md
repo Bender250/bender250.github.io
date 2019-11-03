@@ -10,7 +10,7 @@ September 28 - 29, I was supposed to fly in Zermatt. However, the wind forecast 
 
 I started quite late, leaving Zurich at 8:30 resulted in getting to Les Haudères after 12:30. Anyway, I had big dreams, hiking the whole way to Zinal in one day, and sleeping above Zinal
 
-~[](https://lh3.googleusercontent.com/XCgRtXDUDyDye8RsjgBgMluzzpHDOa5yGyMpT2iigqFa1sOVDby79kbUBM2Ss8Od6Wip2aNvsLdWi0WTgKDJ9wHYq_x65A_VaGtGtiFKurRpgHfX6Kjitm89Y_eGzMNfVKOr6MC1DK4=w2560-h1440-no)
+![](https://lh3.googleusercontent.com/XCgRtXDUDyDye8RsjgBgMluzzpHDOa5yGyMpT2iigqFa1sOVDby79kbUBM2Ss8Od6Wip2aNvsLdWi0WTgKDJ9wHYq_x65A_VaGtGtiFKurRpgHfX6Kjitm89Y_eGzMNfVKOr6MC1DK4=w2560-h1440-no)
 *[Map](https://en.mapy.cz/s/jehulotasa).*
 
 ![](https://lh3.googleusercontent.com/RRVvEbWZAqJopDbKe4T9Ced3yo0tCVvm_QEHkS_xXUySdUJwP8X0o9s_f46ETq64mKswbsRc2Di5Uam9UeY6HDTWa4KDxysxxW-NQv1jSD_M9gjUGO5gPlyqqhf2u6J7VCI12U4dNak=w2160-h1440-no)
