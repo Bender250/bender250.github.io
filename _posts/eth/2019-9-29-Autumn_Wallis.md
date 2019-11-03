@@ -60,7 +60,7 @@ Hiking on Sunday was much more relaxed, 650 m up was no problem.
 *Blueberries were mainly sour but still nice to have some. Yet the color was fascinating.*
 
 ![](https://lh3.googleusercontent.com/93josPOsRha5tJasK6nDvPU5-BnWT-qwxA3IKBQ3yxREsfDDykRZwm7-imV2a0jlmeB2pOL1HjLj0VAM7jrfM8G5-9AX6PYCxpT9TuGowlgGfxW9l9JHqhoQhChGfe82Ie1WCRztCEg=w2160-h1440-no)
-*The Weisshorn (4506) is considered by many mountaineers to be the most beautiful mountain in the Alps and Switzerland for its pyramidal shape and pure white slopes. -- wiki*
+*The Weisshorn [4506] is considered by many mountaineers to be the most beautiful mountain in the Alps and Switzerland for its pyramidal shape and pure white slopes [from the other side]. -- wiki*
 
 ![](https://lh3.googleusercontent.com/TtYHz1tS3UYQc2kJrbV1BsLqmtm8F6GjY6hdghO7zctzHldDw43rWgofo2D1E9vKtTjikYMUw-jV28MdSJNfXkr1bHk3LM5Ip-j8gle3sBYhy-pZoHx-5EaV4RbB4yZzn6msvP95ZT8=w2160-h1440-no)
 *Zinalhorn*
