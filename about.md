@@ -6,20 +6,16 @@ permalink: /about/
 
 # Karel living abroad
 
-Welcome to a blog I am using to reach my friends (not only) in Czech Republic. I will update *about page* later.
+Welcome to a blog I am using to reach my friends (not only) in Czech Republic.
 
+## Contact
 
-### Intro from Erasmus blog below
+If you wish to visit me in Zurich, you are welcome, just write me at least 2 months in advance, I have quite a busy schedule. For an overview of potential activities, please see [this document](https://docs.google.com/document/d/13ylIv-RWxMr7prdcibgrKmoxMGiaHf2ny1kIoakegIs/edit?usp=sharing) (sorry for Czech).
 
-Na tomto blogu budu zveřejňovat zážitky z Erasmu v Trondheimu v Norsku.
+I love postcards, if you want to make me happy, please send one. I can send you back some from my trips.
 
-Logo v záhlaví stránky je vlajka Trondheimu (dávat tam Norskou vlajku mi přišlo moc profláklý).
+Karel Kubicek<br />
+Saatlenstrasse 32A<br />
+8051, Zurich<br />
+Switzerland
 
-### Kontakt
-
-Kdybyste chtěli zajet do Norska, tak mi napište a není problém zde přespat.
-
-Pokud byste mi chtěli napsat tradiční cestou, tak moje aktuální adresa je:
-
-Herman Krags veg 39 - 22<br />
-7050 Trondheim
