@@ -107,7 +107,7 @@ We were without water, and so we spend the whole evening with melting snow. When
 
 ![](https://lh3.googleusercontent.com/8NGTjkRTBjl9fJEoDDNY3l1N_DyMOLscdaEROlTlSECOqrxpitPow0KgHtX5WKWf7ysRMTPU98zUOlFXTBxkNy8FfbTRs1ve8WGClcAmkjx3lXQux96Fa-JjxSJ1Q_v8e12e18Gu6L0=w2560-h904-no)
 
-We hitchhiked to Brig, and slept under the sky in too warm sleeping bags for the low altitude and starting autumn.
+We hitchhiked to Brig, and slept under the sky in too warm sleeping bags for the low altitude and early autumn.
 
 ## Breithorn
 
