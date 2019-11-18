@@ -73,7 +73,7 @@ After this surprising attraction, the next one was a 2.2 km long hike through a 
 ![](https://lh3.googleusercontent.com/49wmMUIqa1pNLI0EV9_2-aTKMDTRm43lyo9920SEfY300fKuMSciVRWd9gPYPPR7Ggw_OUWZrcBb0AkTxmUXx8S7rRw5UbltLmzHwCSNhuqYS3ir_7W8jBPIoS_KpWY5qROE7efnM6A=w2160-h1440-no)
 *Mapy.cz shows a short Via Ferrata on this pass. We were concerned, how would we manage to cross it with snow. But as the sunny slopes were snow-free, the chains were accessible, and we did not need even harnesses. An ibex on the path was not so lucky, in the middle of the path was a recently fallen to death adult, and we scared likely its child :(.*
 
-![](https://lh3.googleusercontent.com/R1j65AhhHq2cHq78qQ9UqCkZgjVaNTyGl6m5B5GuHZtGSP7amcr-UitcG8eMo7MjUSlobsOYXnTjCZ-LRn3HYmWmRqG0Rq1yubRHx-LsEMEAxq5PsMVermjD0GApV6H7JWFHznw9bCY=w960-h1440-no)
+![](https://lh3.googleusercontent.com/eGXLDcK9wBwDdpjjGcH5wKDkQVtw9j7ft-10XBJeOeWTeU41rUQjjLZ0g6jRCyPY304RHFR-h4zwK5JsV35F5HFbYh4xJDpyATKCqX8Rfg-ZkJgO95JwwK_S1lU3N77B1nyMeO7j2zk=w2560-h557-no)
 ![](https://lh3.googleusercontent.com/e3viUJ4lxy3U2oKUil_kSi1puN5PCXiAq8CnBXk7H0rUqHqG1Co54xZeEiE2_Zsyr2Iq81mQ5aRMQ4vpAEer7oX5pvfdg2pvS96nud26KsJtVCV6arCXURa5o0YSD3IfJriUH5E4kEY=w2160-h1440-no)
 ![](https://lh3.googleusercontent.com/YuRkaMmmf3JGDEsMz_6Q7a55K4UHqG0LzMyd_D4XMStXqD-cDEBwqDfV5bgf2G9D0NJC1nNJ7mHIN0g0T16aHeFvxlAKkB8AX38GtTuZ1ACuF4TLgrwjX0MvGkduoweCDH1Gsb5PK-0=w2160-h1440-no)
 
