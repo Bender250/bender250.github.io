@@ -111,21 +111,21 @@ We hitchhiked to Brig, and slept under the sky in too warm sleeping bags for the
 
 ## Breithorn
 
-On Saturday, we were again not in a hurry, as wind forecast was more favorable for the afternoon ascent of Breithorn. I wanted to be as safe as possible because I am not that skilled in leading a mountaineering ascent. Still, Breithorn is the most accessible Swiss 4k, daily ascended by many mountaineers. The only mistake regarding time was that I have not checked the operation time of the cablecar, so it eventually became a bit rushed ascent O:).
+On Saturday, we were again slow-paced, as wind forecast was more favorable for the afternoon ascent of Breithorn. I wanted to be as safe as possible because I am not that skilled in leading a mountaineering ascent. Still, Breithorn is the most accessible Swiss 4k, daily ascended by many mountaineers. The only mistake regarding time was that I have not checked the operation time of the cablecar, so it eventually became a bit rushed ascent O:).
 
 ![](https://lh3.googleusercontent.com/eVHjTPI2V8vanRC4Li9vMsnr8UXbbjcerRHIoNs3f-tu6F5zldp6_ywg6PpqCb4GsbRoR3o2yDbZmGeogtNlrd2pNu8CE95HHo_bECXGda8BxqIkV4MBPnJFQx50FNsbBMLDBplbQKo=w2160-h1440-no)
 *We stated from Klein Matterhorn, which is with 3820 masl the highest cable car in Europe. Matterhorn is in the background.*
 
 ![](https://lh3.googleusercontent.com/Rjsi-7rcKgv2WwgX14uhsQvXrQbG2uv2bxk27jsm2y_CwNCC6VWPcaUwebpJ2TeI2yc6p4bFyHLfGcnE5KSb5QtzsaH6nsCcEde0-zdJr3KN3o1HUh1grf-m1U-HwzMHkT4MtMJ7kKQ=w2160-h1440-no)
-*Breithorn at 4164 masl is really close from the beginning. But you are in 4k, the air density is 66% of the sea level's one, so the trip is still not without effort.*
+*Breithorn at 4164 masl is really close. But you are in 4k, the air density is 66% of the sea level's one, so the trip is still not without effort.*
 
-We started at 13:00 from Klein Matterhorn, at 14:15 we were at the top. I am surprised to see it now when I checked the photo timestamps, we were pushed by the last cablecar departure at 16:15, but still, it is quite fast for [2.6 km distance and 350 m ascent](https://en.mapy.cz/s/johekegava). We both felt the lower air density, but no dizziness (or just a very slight one). The wind at Klein Matterhorn was 55 km/h, and on the top, it was stronger, but it did not fell dangerous.
+We started at 13:00 from Klein Matterhorn, and at 14:15 we were at the top. I am surprised to see it now when I checked the photo timestamps. We were pushed by the last cablecar departure at 16:15, but still, it is quite fast for [2.6 km distance and 350 m ascent](https://en.mapy.cz/s/johekegava). We both felt the lower air density, but no dizziness (or just a very slight one). The wind at Klein Matterhorn was 55 km/h, definitely stronger on Breithorn, but it did not feel dangerous.
 
 ![](https://lh3.googleusercontent.com/uPWbSJpRwQaK1XmvPOPMrfQgkJfS_dtR3WpEDe4FnR0_R3tAEzqBYYEvWFMK-bMuXx9rs5IdaZU0ogRxzRwnlzzxLk2xYliQUyLItktd9eX9eavmRK6o_bwj8dnvwOh3IbCOgI-7u2Y=w2160-h1440-no)
 *Highway*
 
 ![](https://lh3.googleusercontent.com/CdKi-mm3utQdAOIFtcaMIWdAV2UnF_wL68jk0pek8OyZz6s_i1INySmE-xW-jFc2BzmgVrVq1LDSwy2SeVPgARxbthQy2IEDehhVIVvji-QVOTUbdl_hcnmbzGmMVlZkRLgkCAAD1Qg=w2160-h1440-no)
-*Only crevasse crossing, [Rega - Swiss rescue](https://www.rega.ch/en/explore-rega/in-words-and-pictures#pictures) kept an eye on us. Or was it just a [signiseeing tourist helicopter](https://www.zermatt.ch/en/Media/Offers-Articles/Helicopter-Sightseeing-Flight)?*
+*Only crevasse crossing, [Rega - Swiss heli rescue](https://www.rega.ch/en/explore-rega/in-words-and-pictures#pictures) kept an eye on us. Or was it just a [signiseeing tourist helicopter](https://www.zermatt.ch/en/Media/Offers-Articles/Helicopter-Sightseeing-Flight)?*
 
 ![](https://lh3.googleusercontent.com/yNhKZhltL6Kxt0o2VlUP3u2ERPC6TWAnGFA9nuWArl42ycHAiUDTOGsdBUttyyJzeLJCKOAJ0GYvan9QBOxTziBjlgvZrJNWNWs0SuAT-glLFeX58ClRxb2LLtLmC4al_evsTCTIkxo=w2200-h520-no)
 *Top! Swiss side.*
@@ -142,10 +142,10 @@ We started at 13:00 from Klein Matterhorn, at 14:15 we were at the top. I am sur
 15 minutes on top was enough to freeze and take only half of the pictures that I wanted, as the camera was freezing as well.
 
 ![](https://lh3.googleusercontent.com/5NZe6AcSb1eYF9UL8Mwufe6DWAViruLjJism8sW1_0MhksM_CkJPNP7B3QTWSWYmTGB0InPFvgl6eosGw0OQDHAuUVs4vGE4SfzZq6aCvYIlqTOWCl_qFd_znz8tovsLvqs5QREraXc=w1200-h1801-no)
-*I thought we have some extra time, so I let Marta make an ice anchor.*
+*I thought we have some extra time, so I let Marta make an ice anchor. The truth was that we were just in time back, the staff was really pushing us to run to the gondola.*
 
 ![](https://lh3.googleusercontent.com/AZosVty_vc2k9bafOItkxDYWrcuOMGP05eZc8JzGzrc2GPsDNkmjar4Yz4mYxbCZWFKNg2yeyECkcWOHz7HHiARgF0FDVQZNZN-b8BQ8q1FRu4hO7BaluR2H-UVGwxNne7K_z_GT_RM=w2160-h1440-no)
-*By Breithorn, see you for ski and fly!*
+*Bye Breithorn, see you soon for ski and fly!*
 
 ![](https://lh3.googleusercontent.com/haJm55-bQpCNzFS4qLhAVSMA30psnQE2jPvG-T-bnCDRuuY3u-jOvHH4VouT7AI1Zx6ni8zzk91XoxD6dr2RGcKRvcUj3UrVMJeaObssmeUGmutz32iRGcr7Z_jphoDU_Zl7X9BYbx4=w2560-h1440-no)
 *From the north, Breithorn looks a bit scary.*
