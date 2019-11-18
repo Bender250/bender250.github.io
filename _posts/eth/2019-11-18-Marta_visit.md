@@ -96,8 +96,8 @@ We were without water, and so we spend the whole evening with melting snow. When
 ![](https://lh3.googleusercontent.com/ivaUnzg9pF8vOInjW-3VKXG6O6Pctj7BMQB6z8HbfN2EYTlk8rCJQYW2bm6rC-w2fpovTvzADnuuS9e_YoHJEWUkL56QL232LJjw9YslYv244ptDZOSht92n32Lr-Qcfz_rUUrNhxhc=w2160-h1440-no)
 *Last views to Italy*
 
-![](https://lh3.googleusercontent.com/Apu-HRYggUJs43DKCEHl4M0Jx_xQHYMGsgML71d9qOd81F1ka2iBi6HiQkcAshKm9ZP5Thhjmahuaq1bAaXW8F3VxZyEVwsTs1jmple0gYYkesBz3qaREF2vG-0JQNXvpnZy4h16b4w=w960-h1440-no)
-*Border ridge. We met there some Italians, who shared some of their food, and were surprised by my backpack (that sunny day, the snowshoes looked ridiculously).*
+![](https://lh3.googleusercontent.com/t4IVs-FcQz2eYBSlGyr_1Phj8SQCRVTO6cTlGkDNYY-etc_qIj7EjoMk2tkW7D4LgZlpMY2PkQWxcQhir--PqKZRdj5fhJzwcaoaMl0NnF_ZIoHeLocyoTth38p_YPRpPdGj9BOGGF0=w892-h363-no)
+*Border back to CH. We met there some Italians, who shared some of their food, and were surprised by my backpack (that sunny day, the snowshoes looked ridiculously).*
 
 ![](https://lh3.googleusercontent.com/STSUxpU0RAgx-SHT2eIlaKQfaSjcmM3aay62iJGNtVptiB0sIZX2ZDdcQHj5E_nfYqsrCLdyblAO5zHqtIOg_qgrraA9GP2_epDi2TKoo1Sze5lDu9NeTaXA9ao8eBY-cKLdPMD1uro=w2160-h1440-no)
 *Grüezi mitenand*
