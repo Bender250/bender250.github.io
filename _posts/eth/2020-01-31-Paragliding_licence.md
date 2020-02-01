@@ -1,14 +1,14 @@
 ---
 layout: post
-title: I got the paragliding license
+title: I got the paragliding license!
 ---
 
 On Friday, Jan 31, I finished my paragliding license. Winter is not that breathtaking period for photos, so for the best pictures, see [this post](https://bender250.github.io/Paragliding_Brevet/). Photos here will be just recent updates.
 
 ![](https://lh3.googleusercontent.com/d8SYmQq-HQuAB38aPNe35DGJKsqwgbYRQ8QS4mv-4ZOjcERV6QhoS_gmDK5nkBG8Zt9UNPByWdlLRepo_r84c8XF_p-5eq2BfiY7kQWObuwYOMrkRBIvXZGSVzhveGH7l2rB_a2X4N4=w2160-h1440-no)
-*Full sky of wings, thermals are active even during winter. Open [the original image](https://lh3.googleusercontent.com/d8SYmQq-HQuAB38aPNe35DGJKsqwgbYRQ8QS4mv-4ZOjcERV6QhoS_gmDK5nkBG8Zt9UNPByWdlLRepo_r84c8XF_p-5eq2BfiY7kQWObuwYOMrkRBIvXZGSVzhveGH7l2rB_a2X4N4=w5472-h3648-no) for full detail*
+*Full sky of wings, thermals are active even during winter. Open [the original image](https://lh3.googleusercontent.com/d8SYmQq-HQuAB38aPNe35DGJKsqwgbYRQ8QS4mv-4ZOjcERV6QhoS_gmDK5nkBG8Zt9UNPByWdlLRepo_r84c8XF_p-5eq2BfiY7kQWObuwYOMrkRBIvXZGSVzhveGH7l2rB_a2X4N4=w5472-h3648-no) for the full detail.*
 
-# How long was the practice?
+## How long was the practice?
 
 My first high flight was on Apr 20, so it took me 3/4 of the year. I am happy that it took longer than I expected, as I could experience different flying conditions.
 
@@ -17,7 +17,7 @@ I now have 90 flights from 8 flying areas, with 5 instructors taking care of me 
 ![](https://lh3.googleusercontent.com/CtBqkmQ8LQ2WFt0kamIud23Z88M4j6B8MmmMzE6ejQ-_0V5OhZYk7NGWRyR_olwCXmnDFWXBn7ouHPha1wk8-3EfM5L6RUqDCIG6DNWLdC0EnvBSxX1AxDgSBAa90RynBueV9ky_kjw=w1200-h1801-no)
 *Ski&fly in Lenk. I accidentally landed just by the hut on the photo on the previous flight. Only my ego was harmed, but I realized some more physics of thermals.*
 
-# Was it a big deal?
+## Was it a big deal?
 
 Quite yes. The license requirements in Switzerland are the toughest in the world. Both the theory and practical exam were more demanding than driving license exams in CZ (which is more an issue with the driving license requirements).
 
@@ -39,7 +39,7 @@ Conditions on Friday were favorable, a wind that I like for precise landings. I 
 ![](https://lh3.googleusercontent.com/Az0g9DbboT32CMkXh1vTaRSq8VahLswTMZ81tCS92wAh1ndKOdDvixknwJAb-hE_JmIgOyLR1ewhulXWLG0JpJOw9aanpxo3nRKLywRVmcbS9uv1gjL0U_0YdyBkvRDrkvAIwDg1x7Y=w2200-h1238-no)
 *Temporal licence is my flight log.*
 
-# What's next?
+## What's next?
 
 I can start flying on my own (legally). There is still a lot to learn, so I should not start doing crazy things. I am finally looking forward to doing more hike&fly, or during winter ski&fly. This should be a perfect opportunity to explore new areas. So far, I flew only around Interlaken (Bernese Oberland).
 
