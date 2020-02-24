@@ -9,7 +9,7 @@ But the mountains decided that there will be almost no winter. And I also though
 
 ## Easy tour after a tiring day
 
-On Saturday, February 8, I went flying with Tobi, Andrey, and Valentina for the whole day (post will come later). For Sunday, they forecasted a strong föhn, so we wanted to do an easy ski tour. Pizol, where I was with friends in July, is such an easy tour. A gondola takes you to 2200 masl, and with Pizol at 2844 masl, it is only about 900 meters of elevation gain. The guide said 4 hours trip and the public transport takes less than 2 hours door-to-skis, perfect, we do not have to start early.
+On Saturday, February 8, I went flying with Tobi, Andrey, and Valentina for the whole day (post will come later). For Sunday, they forecasted a strong föhn, so we wanted to do an easy ski tour. Pizol, where I was with friends in July, is such an easy tour. A gondola takes you to 2200 masl, with Pizol at 2844 masl, it is only about 900 meters of elevation gain. The guide said 4 hours trip and the public transport takes less than 2 hours door-to-skis, perfect, we do not have to start early.
 
 ![](https://lh3.googleusercontent.com/KBSe-zfRLdd6JvM7lMBxynLA2q4aBbfTYAoaIYLfEvbtv8Q3-g8JGFSHW9UPltmOvghzGLBX3F1p6KdJJUYphvl60AF1oPM7wQT9kIUW27RPNNJoUK0IKYzOKXpyiYYOxQ5ltwP89Vw=w2560-h1081-no)
 
