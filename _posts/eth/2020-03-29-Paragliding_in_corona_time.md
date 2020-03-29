@@ -11,7 +11,7 @@ The official restrictions in Switzerland are maybe not as strict as they should.
 The finished license means I can go flying on my own and where I want. No more waking up at 5 to get to Interlaken at 8 to take off at 9 with the school. 
 
 ![](https://lh3.googleusercontent.com/iDZna7TvM7Njn71BfNEz5ylHgq5dq5qjmAQEvi4ku5M7-lZnZOj-Kq03rpi9zWG5_qGE5tBSbd9m6Ui70VBIDtkdzkRMndlTCdIVDYyEeFRhWKyA9bQfBQQvLYWJTI82iNapXsUZtcg=w2160-h1440-no)
-*The last preparation before my first flight alone was to change a broken line on my wing. It is nothing serious, D-lines are not important anyway, and it is just the coating, the core is fine. So surprisingly, I flight 2 flights with this broken line - the two exam flights.*
+*The last preparation before my first flight alone was to change a broken line on my wing. It is nothing serious, D-lines are not important anyway, and it is just the coating, the core is fine. So surprisingly, I flown just twice with this broken line - the two exam flights.*
 
 ## Rotenflue
 
@@ -27,17 +27,17 @@ With each flight taking about 10 minutes, 15 minutes gondola ride, limited packi
 
 ### Maneuvers
 
-Flying that quick laps is useful to practice maneuvers. Finishing the license creates a bit of vacuum in your goals. I have to no longer perfect the basic maneuvers (to be honest, most of them are boring), so what is next? Doing more complicated maneuvers is mostly too risky before I learn [full-stall](https://justacro.com/tricks/english/full-stall) (i.e., back-flying). However, it is too risky to try over hard ground, as there is a too high chance of getting my wing entangled and falling from the sky. Therefore, I have to wait with full-stall until safety training with a school over water, where if I crash, I have high chances of not getting injured. And with the pandemic, I do not expect any safety training for a while.
+Flying that quick laps is useful to practice maneuvers. Finishing the license creates a bit of vacuum in your goals. I have to no longer perfect the basic maneuvers (to be honest, most of them are boring), so what is next? Doing more complicated maneuvers is mostly too risky before I learn [full-stall](https://justacro.com/tricks/english/full-stall) (i.e., back-flying). However, it is too risky to try it over hard ground, as there is a too high chance of getting my wing entangled and falling from the sky. Therefore, I have to wait with full-stall until safety training with a school over water, where if I crash, I have high chances of not getting injured. And with the pandemic, I do not expect any safety training for a while.
 
 ![](https://lh3.googleusercontent.com/W6b9qHPAbE5LstoY3sCtrmp0AP64yonvfHMj1Ir3L_ngDFKkVCi9t1HJ0rwo5a5sGriMXwRXjOxMqZWbHsqrYNkFPuUd3uAAXL80UJmi40_51o7tXGTipa8ybHeMqxEfulTLrACmEKo=w808-h540-no)
-*Series of pictures of Tobi performing full-stall.*
+*Animation from pictures of Tobi performing full-stall.*
 
 ![](https://lh3.googleusercontent.com/Vu_QJySA05KiA3hpMJCOf-RlVK7YtZvkxifwoumGPlcRiFtZtO9g4UBCyX556lA0dCtKTk4UgL75Qja4_aob0uYnDyb7eqkAl_Pb7WEBHDAJZx0hU1WcmD2tzUWikqaTkRySVfWSAqs=w2160-h1440-no)
 *Look at me for a photo! But I fly away from you. Never mind.*
 
 ![](https://lh3.googleusercontent.com/HVTl6_VewbaUrRplShqqybusIwS3R-mE52qyxVb_cqvtuQdlsNZFNQm36MZbg7GK9boN0rkkwBVmtFwfUOsMx7icUKbU9ZcbUHvqcOcQSz4tb2B-YpitQ4ypaL0IZMitNJjtWYQzeE8=w2160-h1440-no)
 ![](https://lh3.googleusercontent.com/1ANknjsTb7qNjI_3wrA7ppPCugkQOjT1urZW-17WAcjQkE8xO0kd5HcjFvEFNBtN0qwbcUMGOiabX2DlrzYffpg88xDhyqVZFQqgmD5JkCSRTyH2mOESD0lizKSeKI-epyaoXqqT67g=w2160-h1440-no)
-*Some weird perspective.*
+*Some bird perspective photos.*
 
 So what can I do? My favorite activity is to practice [wingovers](https://www.youtube.com/watch?v=Yub1L2ClnGM) (not me on the video). Not only because they are a lot of fun, but as they are complex enough to learn a lot from them. 
 
@@ -51,7 +51,7 @@ So what can I do? My favorite activity is to practice [wingovers](https://www.yo
 
 On March 7, I joined Christian, Wessel, and other guys from the Zurich paragliding group on a cross country (XC) attempt in Jura. I was hesitant to join (XC needs a lot of experience), but guys told me I will be fine. I did not want to stay at home, in the worst case, I will decide to give up and return home.
 
-On the train, we met Fabienne, a Swiss (paragliding) League pilot. Swiss League was flying at the same place, as it was raining everywhere except our location. She told us about her 250 km flights, her crazy dangerous wing, and then she asked how long do we fly. Christian said about 2 years, which surprised Fabienne, she was worried he is too beginner. I nervously answered I just finished my license, that did not make her happy. It is too windy there for you guys.
+On the train, we met Fabienne, a Swiss (paragliding) League pilot. Swiss League was flying at the same place, as it was raining everywhere except our location. She told us about her 250 km flights, her crazy dangerous wing, and then she asked how long do we fly. Christian said about 2 years, which surprised Fabienne, she was worried he is too much of a beginner. I nervously answered I just finished my license, that did not make her happy at all. *It is too windy there for you guys!*
 
 We joined the Swiss League briefing, learning about the weather and their goals. Just one month after license and I am joining Swiss League briefings, what will be next? 2021 XAlps? :D
 
@@ -59,12 +59,12 @@ We joined the Swiss League briefing, learning about the weather and their goals.
 ![](https://lh3.googleusercontent.com/VZaaopXvpIyDd1U0Ic92-icUMpdHZ67-qBvaRkgiVAkPzij8xAHptqEoW8IF8yp7IWI_-kUJC08trg6YF5G1ATGIWsYXCRKM7iT-bXUNQigrUvkdexGzm1NtG-ONQBU4aRdj-QHebUY=w2560-h1440-no)
 *Röti is a nice peak, the surrounding was covered with 20 cm of fresh snow, but on the top, it was almost all ice layer.*
 
-The cliff takeoff on ice looked scarier than the wind. But the scariest were takeoffs of Swiss League pilots. Their high span wings were doing many things, but not steady takeoffs. This scared the shit out of me. I went to a flat section, raised my wing in the strong wind, and played with it a bit. It fell absolutely perfect, I gained confidence and moved to the cliff. Fortunately, someone stopped me that I have not finished the preflight check! How stupid of me, I just planned to play a bit, launching later, and it is crucial to stick to the plan in paragliding.
+The cliff takeoff on ice looked scarier than the wind. But the scariest were takeoffs of Swiss League pilots. Their large span wings were doing many things, but not steady takeoffs. This scared the shit out of me. I went to a flat section, raised my wing in the strong wind, and played with it a bit. It fell absolutely perfect, I gained confidence and moved to the cliff. Fortunately, someone stopped me that I have not finished the preflight check! How stupid of me, I just planned to play a bit, launching later, and it is crucial to stick to the plan in paragliding.
 
 ![](https://lh3.googleusercontent.com/k340V1ngUpGNLFXG07L5iFyMvalVQZoLjY3tbEpqYTOhDbx9A9xvu9FiDNKZOzOW65eliQdPrBYaoqBOrlIaA5BgmEKCEOz9fPtCONMJC8fbaXoBCR8-CSkpdHOmMRwhyAwEVoLlLX8=w2560-h1440-no)
 *I am wearing all my warm clothes, wool underwear, 2 down jackets, Primaloft pants, a windproof jacket, and pants. The air was chill, about -5° C at the takeoff, -13° C at the bottom of the inversion layer (the possibly highest point where you can soar "easily").*
 
-After the most thorough preflight check in my life, I raised my wing, slowly with control walk against the wind, and took off without issues. Note that it is not my skill that made it easy, beginner wings are just simple to handle.
+After the most thorough preflight check in my life, I raised my wing, slowly with control walked against the wind, and took off without issues. Note that it is not my skill that made it easy, beginner wings are just simple to handle.
 
 Did I manage to stay 1.5 hours in the air, as was the goal of professionals? No chance, my flight was mere 15 minutes short. I got almost no lift and simply sank down. Like 1/3 of the Swiss League, whose members greeted me at the landing place as the "Alpha guy." Swiss paragliders manufacturer Advance names wings by the Greek alphabet. Alpha is for beginners - the wing that I fly. Omega is a competition wing, that many were flying there. No one else was flying Alpha there ;).
 
@@ -75,12 +75,12 @@ I do not regret spending the whole day for <15 minutes flight, I learned a lot.
 My last flight was on March 14. I knew it is going to be the last for a while,  all organized flying was forbidden, so I went alone for the easiest and closest hike&fly from Zurich.
 
 ![](https://lh3.googleusercontent.com/B74oYh-ks38svzwIJQGadLDkoE86IAyMWQP-FazIriyKUjlJglIIE3Kl32lHI5FyyZ978hP6vni2T2pDD70jO2mUd2cZ3I7dZM1tK7jZALAF89KuuzjQt5ME4NDSsA5dCdO_sJaHFz8=w720-h1280-no)
-*(Starting at Zugerberg funicular upper station at 929 masl, going to 1568 masl should take 3:37 hours.](https://en.mapy.cz/s/racogevaze) I took it as a fast hiking challenge.*
+*[Starting at Zugerberg funicular upper station at 929 masl, going to 1568 masl should take 3:37 hours.](https://en.mapy.cz/s/racogevaze) I took it as a fast hiking challenge (with 12 kg large backpack).*
 
 ![](https://lh3.googleusercontent.com/bN4PuKcxrDEq7R_5KeFbIn5UfTrtREVI9hNOLQ91AKgpfDAFMN6ZGky_ROOKMXmtbd5Im_7ac3pmh59C0Rm_WBun57qqPtPHpFmATnsy0PguOXjSJRIraXO5MDYxuATUwB0Ya326u4s=w2560-h1440-no)
 *The weather did not look very flyable. But just 20 minutes later I have seen some wings in the air. I am not that alone.*
 
-![](https://lh3.googleusercontent.com/43zoA4S1pkgJojjazZ1YRpKH6FsB8DrKfco9ZrN6P5RLRoE1LjZjaQoW-FyCLKQRpz0znHJ5dHXo5j1uWGKnw_xUnrGXYzcGrmyxqs4HlryCmFrb79fXEUaosuX-5mlJvMgcGN3InSw=w810-h1440-no)![](https://lh3.googleusercontent.com/PUv77ma7pdq9KBJ-bUPtvPBBrFFvwwTupuIzW367OCX8EaB5OINSdb4L1pHFjqFdgRjmAHeMxdEnvQFyDOk_O5xO0emOYmcXPkwksygQ-8-uiE4jid4Ci9z49Ouls18l2RebCPvREQE=w810-h1440-no)
+![](https://lh3.googleusercontent.com/43zoA4S1pkgJojjazZ1YRpKH6FsB8DrKfco9ZrN6P5RLRoE1LjZjaQoW-FyCLKQRpz0znHJ5dHXo5j1uWGKnw_xUnrGXYzcGrmyxqs4HlryCmFrb79fXEUaosuX-5mlJvMgcGN3InSw=w360-h640-no)![](https://lh3.googleusercontent.com/PUv77ma7pdq9KBJ-bUPtvPBBrFFvwwTupuIzW367OCX8EaB5OINSdb4L1pHFjqFdgRjmAHeMxdEnvQFyDOk_O5xO0emOYmcXPkwksygQ-8-uiE4jid4Ci9z49Ouls18l2RebCPvREQE=w360-h640-no)
 *There was snow in March in 1500 masl, it took me by surprise. Grippen is not a mountain, but a hill (sorry Snežka).*
 
 I proudly made the hike in under 2 hours. Pushed by cold and unfavorable forecast, I have not cheered at the top and flew almost immediately down.
