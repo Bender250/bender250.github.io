@@ -105,6 +105,6 @@ Last week's winds are perfect for groundhandling, so finally, I can get more pra
 ![](https://lh3.googleusercontent.com/zXptc3lvNnCqA7BCxxnVUi4lJEeR0MkRqFYnM47N71zeimt0jKYMYiUNCVBsTW77bQC5XdH7NyVomxn2rf802IDH11nNZB7eE-zottZzMXowoTbQkNtb4aTjokvadXo1kS0xWAkaLjE=w1920-h1440-no)
 *Taking pictures while handling the wing is quite a challenge. So I am proud of this photo :).*
 
-A funny perspective video: https://photos.app.goo.gl/Z3vHhUa2VMRZvs1s9
+[A funny perspective video.](https://photos.app.goo.gl/Z3vHhUa2VMRZvs1s9)
 
 I hope you enjoyed reading this post, thanks for getting down here. Do not get bored and stay safe!
