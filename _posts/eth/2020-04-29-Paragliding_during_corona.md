@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Paragliding during Corona
+title: Paragliding during Corona lockdown
 ---
 
 
