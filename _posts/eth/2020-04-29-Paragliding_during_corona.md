@@ -88,7 +88,7 @@ At that altitude, I decided to try to fly in the planned direction towards Hahne
 What to do at 11:43 on a sunny day when I am taking a vacation? I decided to pack and hike the 800 m up again. I was faster alone, hiking up in about 1.5 hours. At 14:00, when the thermals are usually strongest, I was ready for my second attempt.
 
 ![](https://lh3.googleusercontent.com/pw/ACtC-3fPSUFBdnR47XdH-6IKm1V1H0SuyKs6f4AVVaqqdIMfIeBxo3eBPf6lk-Xc8OHI5kfoKZcDtPM_NYDeWlplSwcxvl_GrtBpNfekk3gnL63Vc_XMlFovJXN0AzNxLdeYVsf5lsSs-nt7xdWMJT-fsRlaLw=w1920-h1440-no)
-*Ready.*
+*Ready*
 
 But as the valley winds changed, thermals were not working at all. My second flight was just 15 minutes long, and sinking that fast the tough hiked up meters was tormenting.
 
