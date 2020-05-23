@@ -26,7 +26,7 @@ I have not given up my hobby completely, I went flying once during the strictest
 
 It was difficult to stay at home during the amazing March and April weather. On April 5, I found out that my flatmates also have nothing to do, so I planned a hike to an area that is kind of close to Zurich (within 1 hour by car), but still very remote to tourism. Isenthal is such a place for sure.
 
-<iframe style="border:none" src="https://en.frame.mapy.cz/s/mokefevaco" width="400" height="280" frameborder="0"></iframe>
+<iframe style="border:none" src="https://en.frame.mapy.cz/s/mokefevaco" width="100%" frameborder="0"></iframe>
 
 We drove there with Yannick's car, and we met at most 10 people during the day, so the risk was minimal. I took my wing to decide at the top of our hike if I want to fly down.
 
