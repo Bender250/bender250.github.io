@@ -40,7 +40,7 @@ I was amazed by the area, and since that hike, I recommended it to several peopl
 
 We were amazed by one particular thing that won't be possible to experience after the virus is over. Look up to the sky, and you won't find any plane tracks! Take a moment to appreciate that fact as we did.
 
-![](https://lh3.googleusercontent.com/aWxHlgsFquOyObTab32h1z4hDEXVxAtn6C7uIUC4UpKm8hRMIe3lHiKSneha8L5JSMmz73SnUytT8-XN8NuJiUNwBLaWSkloIzfbKvtK-_i6RNUn6G8Z1mHW67cGn0w37iyFpOoGIWI=w585-h390-no)
+![](https://lh3.googleusercontent.com/aWxHlgsFquOyObTab32h1z4hDEXVxAtn6C7uIUC4UpKm8hRMIe3lHiKSneha8L5JSMmz73SnUytT8-XN8NuJiUNwBLaWSkloIzfbKvtK-_i6RNUn6G8Z1mHW67cGn0w37iyFpOoGIWI=w2160-h1440-no)
 *Älpler (1855 m) and Hoh Brisen (2413 m)*
 
 ![](https://lh3.googleusercontent.com/nfOGBwlGe6dYnDmirApICbzDlz5HyoDm7mBCgvB8eI9d1ltIEpxJtLf-jLbaPF4s3CCeCLTKpdrCxCokq61ACgExt64jSA3bKHtwia372mbn6dJr9VdVYrY72og9cVCvTP2yRbHrAmE=w960-h1440-no)
@@ -49,7 +49,7 @@ We were amazed by one particular thing that won't be possible to experience afte
 After walking a bit around, Yannick and Klara were about to hike down. And I was deciding whether to fly down. The forecast was perfectly safe, favorable wind, a tiny chance for thermals just from the sun, the wind masses were stable. The only hazard was the fact that Niedwalden is the canton of thousand of cables.
 
 ![](https://lh3.googleusercontent.com/pw/ACtC-3df0W8qTQKTkUFTfccHoEbvspiAStDx655qxeHbWxzrf1V5Pkq8uPZ9MwyurdCiv_KVgV05pMnv9mdSBdz50bNp4VyTD6nhj91mhohQfRXua-kWn22GsAh5-5JBpiwFZiHTZ_Az-i2R7jFg-Igajk-CsA=w1018-h457-no)
-*Screen from an avionic map, showing obstacles. All red lines are some cables, mostly farmer's transport lifts. These cables are invisible when you stand close to them The whole red area is where it would be nicest to take off, given the flight opportunities. The blue highlight is my actual flight, crossing just one cable, with a huge safety margin.*
+*Screenshot from an avionic map, showing obstacles. All red lines are some cables, mostly farmer's transport lifts. These cables are invisible when you stand close to them The whole red area is where it would be nicest to take off, given the flight opportunities. The blue highlight is my actual flight, crossing just one cable, with a huge safety margin.*
 
 ![](https://lh3.googleusercontent.com/pw/ACtC-3driNbCRHUVuFkY_QlKpR-xwHPK6xXYWsr6Hj6Y-UUDonkftq4y4ikCWt4Llr9VCs3VkuL5_HNok9r06BTnBrh13YvUQDBwRpdrhxuzwIrgd7fAeoxT5oEW1QEivwIZXKk6IkA87m_LWfl45xgizUsqAg=w2160-h1440-no)
 ![](https://lh3.googleusercontent.com/pw/ACtC-3eBU0OjsIzrAgfJkrECs-KrZJefUzgcBGf9EISPzrqwXNNkOD2IVDJCK5zkMfP45lx3PDezCKeRJ2v-s6BpxoNweYrI01FXsRKn2ccwhfOcBVeamwgHTIJV4L3lQUsc3esSDmOjOYobSo-L8tdXPGG4Sg=w960-h1440-no)
